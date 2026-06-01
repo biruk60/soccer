@@ -17,103 +17,34 @@ Behind the scenes, he remained fully involved in talks over pre-season and summe
 
 7. Hughes and Michael Edwards had previously indicated that they were going to stand by Slot given the mitigating factors which had contributed to Liverpool’s fortunes nosediving. However, having taken stock in the week following the end of the season, they came to the conclusion that a change was required given the mood both within the dressing room and the fanbase. 
 
-8. Slot’s job had also been made harder by the downturn in form of established stars such as Salah, Alexis Mac Allister, Ibrahima Konate and Cody Gakpo. The breakdown in the relationship between Salah and Slot was one of the sub plots of the season with the Egyptian forward adamant that he had been made a scapegoat for the team’s struggles when he was dropped in November, telling reporters in December he had been “thrown under the bus”. Injuries did not help, either. Record signing Alexander Isak arrived unfit following his protracted £125m move from Newcastle United and then missed nearly four months with a broken left leg.
+8. Slot’s job had also been made harder by the downturn in form of established stars such as Salah, Alexis Mac Allister, Ibrahima Konate and Cody Gakpo. The breakdown in the relationship between Salah and Slot was one of the sub plots of the season with the Egyptian forward adamant that he had been made a scapegoat for the team’s struggles when he was dropped in November, telling reporters in December he had been “thrown under the bus”. Injuries did not help, either. Record signing Alexander Isak arrived unfit following his protracted £125m move from Newcastle United and then missed nearly four months with a broken left leg. Giovanni Leoni and Conor Bradley both suffered season-ending knee injuries, while 17-goal top scorer Hugo Ekitike ruptured his right Achilles tendon. Alisson, Jeremie Frimpong and Wataru Endo also had significant spells on the sidelines. There was an acceptance that a lot of the £450m invested in the squad last summer hadn’t been on the field often enough. Florian Wirtz, who needed a lengthy period of adaptation to English football, Isak and Ekitike played just 118 minutes of football together.
 
-Giovanni Leoni and Conor Bradley both suffered season-ending knee injuries, while 17-goal top scorer Hugo Ekitike ruptured his right Achilles tendon. Alisson, Jeremie Frimpong and Wataru Endo also had significant spells on the sidelines.
-
-There was an acceptance that a lot of the £450m invested in the squad last summer hadn’t been on the field often enough. Florian Wirtz, who needed a lengthy period of adaptation to English football, Isak and Ekitike played just 118 minutes of football together.
-
-9. The spat with Salah didn’t cost Slot his job. Much more significant in the final decision was his inability to find solutions to the team’s glaring weaknesses as a blanket of negativity descended during the run-in with performances so lifeless and disjointed.
-
-His complaints about facing “low blocks” and being faced with “negative set-piece balances” started to wear thin with the most damning assessment from fans that they felt bored by the slow brand of football.
-
-When Liverpool enjoyed back-to-back wins over Everton and Crystal Palace in late April, there were aspirations of leapfrogging Manchester United into third place. They only needed four points from their remaining four matches to be guaranteed a top-five finish.
-
-But they took just two out of the last 12 points on offer. A chastening defeat at Old Trafford was followed by a home draw with Chelsea in which Slot was subjected to the kind of dissent a Liverpool manager hadn’t faced at Anfield since the final days of Roy Hodgson’s reign in 2010-11. His decision to substitute Rio Ngumoha was greeted with a torrent of boos. More followed at the final whistle. The noise would have been louder but for the thousands of empty seats.
-
-Hughes was sitting in the directors’ box that day when supporters vented their spleen at the sight of Slot’s side retreating and slowing the game down when they were 1-0 up rather than going for the jugular. The disconnect between what fans expected and what was being served up was stark.  The 4-2 defeat at Aston Villa was equally damaging and the 1-1 draw with Brentford on the final day wasn’t much better. Rather than pinpointing one moment as the breaking point, senior club sources suggest that faith in Slot slowly ebbed away during those closing weeks.
-
-
+9. The spat with Salah didn’t cost Slot his job. Much more significant in the final decision was his inability to find solutions to the team’s glaring weaknesses as a blanket of negativity descended during the run-in with performances so lifeless and disjointed. His complaints about facing “low blocks” and being faced with “negative set-piece balances” started to wear thin with the most damning assessment from fans that they felt bored by the slow brand of football. When Liverpool enjoyed back-to-back wins over Everton and Crystal Palace in late April, there were aspirations of leapfrogging Manchester United into third place. They only needed four points from their remaining four matches to be guaranteed a top-five finish. But they took just two out of the last 12 points on offer. A chastening defeat at Old Trafford was followed by a home draw with Chelsea in which Slot was subjected to the kind of dissent a Liverpool manager hadn’t faced at Anfield since the final days of Roy Hodgson’s reign in 2010-11. His decision to substitute Rio Ngumoha was greeted with a torrent of boos. More followed at the final whistle. The noise would have been louder but for the thousands of empty seats. Hughes was sitting in the directors’ box that day when supporters vented their spleen at the sight of Slot’s side retreating and slowing the game down when they were 1-0 up rather than going for the jugular. The disconnect between what fans expected and what was being served up was stark.  The 4-2 defeat at Aston Villa was equally damaging and the 1-1 draw with Brentford on the final day wasn’t much better. Rather than pinpointing one moment as the breaking point, senior club sources suggest that faith in Slot slowly ebbed away during those closing weeks.
 
 10. Eyebrows were raised when Slot didn’t take part in the traditional lap of appreciation following the final game of the season at home against Brentford. He sat alone in the dugout while departing legends Mohamed Salah and Andy Robertson accepted the acclaim of Anfield. People close to the Dutchman insist that was down to him wanting to ensure the spotlight remained on Salah and Robertson rather than a sign that he knew his days at the club were numbered.  
 
-11. It was telling in the wake of Slot’s sacking that club sources talked about the “next phase” for Liverpool requiring “a more front-foot, aggressive and urgent style of football”.
-
-The decision was taken by Hughes and Edwards with sign off from the FSG board which includes principal owner John W. Henry, chairman Tom Werner and FSG president Mike Gordon.
-
-There was a fear that if they stuck by Slot and then next season didn’t start well things would quickly turn toxic at Anfield. And if they were forced to make a change in the autumn finding a suitable successor would be harder than this summer given the candidates available.  “It’s a decision we didn’t want to make, but one we ultimately concluded we reluctantly had to,” the senior FSG figure adds.
+11. It was telling in the wake of Slot’s sacking that club sources talked about the “next phase” for Liverpool requiring “a more front-foot, aggressive and urgent style of football”. The decision was taken by Hughes and Edwards with sign off from the FSG board which includes principal owner John W. Henry, chairman Tom Werner and FSG president Mike Gordon. There was a fear that if they stuck by Slot and then next season didn’t start well things would quickly turn toxic at Anfield. And if they were forced to make a change in the autumn finding a suitable successor would be harder than this summer given the candidates available.  “It’s a decision we didn’t want to make, but one we ultimately concluded we reluctantly had to,” the senior FSG figure adds.
 
 
 # Did Liverpool get it right sacking Arne Slot?
 
-12. Given the former AZ Alkmaar manager’s unpopularity with fans due to his tactical decisions mid-game and having leaked 53 goals – the most goals Liverpool have conceded since the 1992/93 season,that may seem silly to ask. It isn’t known exactly how much influence Slot had over last summer’s outlay, so one has to be wary of pinning the blame solely on him when it comes to Liverpool’s new arrivals this season.
+12. Given the former AZ Alkmaar manager’s unpopularity with fans due to his tactical decisions mid-game and having leaked 53 goals – the most goals Liverpool have conceded since the 1992/93 season,that may seem silly to ask. It isn’t known exactly how much influence Slot had over last summer’s outlay, so one has to be wary of pinning the blame solely on him when it comes to Liverpool’s new arrivals this season. But nevertheless, it cannot be ignored that under his leadership the defending champions spent an eye-watering single-window record of £450m to scrape a fifth place finish and Champions League football on the final day. Sizeable gaps in central defence weren’t addressed, with money instead blown on unnecessary luxury signings such as Florian Wirtz and their £125m man, Alexander Isak. Milos Kerkez, meanwhile, looked far from the competent left back Liverpool brought in from the Vitality Stadium. 
 
-But nevertheless, it cannot be ignored that under his leadership the defending champions spent an eye-watering single-window record of £450m to scrape a fifth place finish and Champions League football on the final day.
+13. Of course, it should be pointed out that Slot has had his fair share of bad luck when it comes to transfers. Long-term injuries to centre back signing Geovanni Leoni and the aforementioned Isak could not have been foreseen by the club, while Jeremie Frimpong – signed as Trent Alexander-Arnold’s direct replacement – has himself been plagued by injury setbacks. Then there is the farcical handling of Marc Guéhi’s failed switch, which is in no way the ex-Feyenoord boss’s fault. On a more positive note, it is also worth mentioning that Hugo Ekitike, who joined from Frankfurt for a potential £78m, was a standout before rupturing his achilles tendon against PSG.
 
-Sizeable gaps in central defence weren’t addressed, with money instead blown on unnecessary luxury signings such as Florian Wirtz and their £125m man, Alexander Isak. Milos Kerkez, meanwhile, looked far from the competent left back Liverpool brought in from the Vitality Stadium. 
+14. But even with such mitigating factors, the Dutchman still has to shoulder some of the blame for one of the worst transfer windows European football has ever seen. In addition to wasting a king’s ransom on incomings, Slot also authorised some head-scratching departures – not least that of Luis Diaz to Bayern Munich. It is true that the Colombian was often frustratingly inconsistent for the North West club. But when on form the ex-Porto man was the club’s best attacker behind Mo Salah, and has proven to be one of Europe’s most dangerous wingers when used right. Given how this campaign has played out, it is difficult not to feel the 29-year-old would’ve performed better for the Reds than his peers on the wing, such as Federico Chiesa and others like him who have come in and out of the side.
 
-13. Of course, it should be pointed out that Slot has had his fair share of bad luck when it comes to transfers. Long-term injuries to centre back signing Geovanni Leoni and the aforementioned Isak could not have been foreseen by the club, while Jeremie Frimpong – signed as Trent Alexander-Arnold’s direct replacement – has himself been plagued by injury setbacks.
-
-Then there is the farcical handling of Marc Guéhi’s failed switch, which is in no way the ex-Feyenoord boss’s fault.
-
-On a more positive note, it is also worth mentioning that Hugo Ekitike, who joined from Frankfurt for a potential £78m, was a standout before rupturing his achilles tendon against PSG.
-
-14. But even with such mitigating factors, the Dutchman still has to shoulder some of the blame for one of the worst transfer windows European football has ever seen.
-
-In addition to wasting a king’s ransom on incomings, Slot also authorised some head-scratching departures – not least that of Luis Diaz to Bayern Munich.
-
-It is true that the Colombian was often frustratingly inconsistent for the North West club. But when on form the ex-Porto man was the club’s best attacker behind Mo Salah, and has proven to be one of Europe’s most dangerous wingers when used right.
-
-Given how this campaign has played out, it is difficult not to feel the 29-year-old would’ve performed better for the Reds than his peers on the wing, such as Federico Chiesa and others like him who have come in and out of the side.
-
-15. More than anything else, Slot’s biggest crime as Liverpool boss was deviating too much from what worked previously.  Gone was the intense high-pressing, free-flowing ‘heavy metal’ football that characterised the club during Klopp’s era and the Dutchman’s first season, to be replaced with slow, insipid, predictable build up play.
-
-Nowhere was this epitomised more than his handling of Mohamed Salah, with Slot choosing to shift the ‘Egyptian King’ closer to the touchline in a move that baffled the Anfield faithful and neutrals alike.
-
-Yes, managers need to adapt, but completely changing the side’s style whilst also shoving a player known for his goalscoring prowess away from the box was always going to raise eyebrows.
-
-And that’s before we get to the Reds’ leakiness at the back, with 63 goals being conceded in all competitions over the course of the season – the eighth worst in the division and third worst among sides who played in Europe.
-
+15. More than anything else, Slot’s biggest crime as Liverpool boss was deviating too much from what worked previously.  Gone was the intense high-pressing, free-flowing ‘heavy metal’ football that characterised the club during Klopp’s era and the Dutchman’s first season, to be replaced with slow, insipid, predictable build up play. Nowhere was this epitomised more than his handling of Mohamed Salah, with Slot choosing to shift the ‘Egyptian King’ closer to the touchline in a move that baffled the Anfield faithful and neutrals alike. Yes, managers need to adapt, but completely changing the side’s style whilst also shoving a player known for his goalscoring prowess away from the box was always going to raise eyebrows. And that’s before we get to the Reds’ leakiness at the back, with 63 goals being conceded in all competitions over the course of the season – the eighth worst in the division and third worst among sides who played in Europe. 
 Unsurprisingly, Slot’s bold decisions, to say the least, backfired, and Salah’s form alongside his club’s plummeted off a cliff. 
 
-16. Weighing up the pros and cons, FSG were probably right to sack the ex-Cambuur coach. But regardless of what has come since, the Netherlands native remains only the fifth manager to win the top flight during their debut season in England – and nobody can take that away from him.
-
-That accomplishment alone won’t redeem Slot’s subsequent title defence this season, but he nonetheless departs Anfield as a title winner who will be remembered for bringing Premier League glory back to Liverpool, despite how his tenure ended.
+16. Weighing up the pros and cons, FSG were probably right to sack the ex-Cambuur coach. But regardless of what has come since, the Netherlands native remains only the fifth manager to win the top flight during their debut season in England – and nobody can take that away from him. That accomplishment alone won’t redeem Slot’s subsequent title defence this season, but he nonetheless departs Anfield as a title winner who will be remembered for bringing Premier League glory back to Liverpool, despite how his tenure ended.
 
 
 # Arne Slot writes emotional open letter after sacking
 
-17. In an emotional open letter published in the Liverpool Echo, external, Slot said fans made him feel welcome from the start and helped him on his path. "That is something I cherish," he added.
+17. In an emotional open letter published in the Liverpool Echo, external, Slot said fans made him feel welcome from the start and helped him on his path. "That is something I cherish," he added. "I leave with complete confidence in what lies ahead. "The players who have given so much to this club, who have upheld its values and helped create so many unforgettable moments, have built foundations that will endure." Despite suffering 20 defeats in all competitions, Slot secured Liverpool's place in next season's Champions League. "Securing Champions League football was an important responsibility and one that ensures Liverpool can continue competing at the highest level next season and beyond," he added. "Change is part of football, but I know that this club will continue to make its people proud. "When I first stood beneath that sign in the Anfield tunnel, I knew what this club demanded. I leave knowing we never stopped striving for it." "It was made even more meaningful because you got to enjoy it with us," said Slot. "Singing our songs, cheering the goals. And on the day we lifted the trophy, you were there - lining the streets outside the stadium, filling Anfield in anticipation. "Having had much of that taken from you in 2020, it was never lost on me how much it mattered that you were part of it all. "Seeing you come together in your hundreds of thousands on the streets of Liverpool for the title celebrations only reinforced that idea. "Liverpool's 20th league title belongs to all of us and it will remain an important chapter in its history. For that we should all be proud. "This club will always judge itself by the biggest honours. That is how it should be."
 
-"I leave with complete confidence in what lies ahead.
-
-"The players who have given so much to this club, who have upheld its values and helped create so many unforgettable moments, have built foundations that will endure."
-
-Despite suffering 20 defeats in all competitions, Slot secured Liverpool's place in next season's Champions League.
-
-"Securing Champions League football was an important responsibility and one that ensures Liverpool can continue competing at the highest level next season and beyond," he added.
-
-"Change is part of football, but I know that this club will continue to make its people proud.
-
-"When I first stood beneath that sign in the Anfield tunnel, I knew what this club demanded. I leave knowing we never stopped striving for it."
-
-"It was made even more meaningful because you got to enjoy it with us," said Slot. "Singing our songs, cheering the goals. And on the day we lifted the trophy, you were there - lining the streets outside the stadium, filling Anfield in anticipation.
-
-"Having had much of that taken from you in 2020, it was never lost on me how much it mattered that you were part of it all.
-
-"Seeing you come together in your hundreds of thousands on the streets of Liverpool for the title celebrations only reinforced that idea.
-
-"Liverpool's 20th league title belongs to all of us and it will remain an important chapter in its history. For that we should all be proud.
-
-"This club will always judge itself by the biggest honours. That is how it should be."
-
-18. In his letter, Slot paid tribute to the late Liverpool forward Diogo Jota, who died in a car crash alongside his brother Andre Silva as the players were preparing to return for pre-season training last summer.
-
-The Dutchman said Jota's passing was "indescribable", but added "the love, compassion and support shown by the Liverpool family was extraordinary".
-
-Slot said: "As I leave this club, it would be remiss of me not to say that the way you honoured Diogo and stood together in his memory will stay with me forever.
-
-"The connection we share goes beyond football, beyond European nights under the Anfield lights or the sound of 'You'll Never Walk Alone' being sung from The Kop."
+18. In his letter, Slot paid tribute to the late Liverpool forward Diogo Jota, who died in a car crash alongside his brother Andre Silva as the players were preparing to return for pre-season training last summer. The Dutchman said Jota's passing was "indescribable", but added "the love, compassion and support shown by the Liverpool family was extraordinary". Slot said: "As I leave this club, it would be remiss of me not to say that the way you honoured Diogo and stood together in his memory will stay with me forever. "The connection we share goes beyond football, beyond European nights under the Anfield lights or the sound of 'You'll Never Walk Alone' being sung from The Kop."
 
 19. Slot also told fans he was "privileged to witness first-hand your spirit of compassion and unity" during the club's trophy parade in May 2025. "It is a spirit that has carried this city through difficult moments before, and one that I hope will help bring the justice and accountability so many have campaigned for over many years," he added.
 
@@ -121,71 +52,23 @@ Slot said: "As I leave this club, it would be remiss of me not to say that the w
 
 20. Still, the 47-year-old is unlikely to have any issues moving forward. Slot remains very hireable, and there‘s bound to be multiple clubs who at least entertain a plunge this summer, assuming he wants to get straight back into it.
 
-21. AC Milan
+21. AC Milan: A pitiful title charge culminated in a woeful collapse towards the back end of an eventually miserable 2025–26 season for AC Milan. Massimiliano Allegri’s ideals remain antiquated, and Rossoneri supporters suffered plenty as a result. Thus, Milan have pressed the reset button. Missing out on the Champions League, given their position of strength midway through the campaign, rendered Allegri’s position untenable, and he’s only one of several high-profile figures to get the chop. Slot was linked with the vacant Milan job right after his Liverpool dismissal. A frontrunner hadn’t yet emerged in the race to succeed Allegri, but a Premier League title-winning manager may be whom they covet. Milan will want to return to the 21st century with their next managerial appointment, and although Slot’s soccer can be rather functional, his teams, at their best, at least boast a coherent idea of how to use possession. It’d be a big job for Slot, given Milan’s lofty prestige, and perhaps an opportunity that’d prove too enticing to ignore.
 
-A pitiful title charge culminated in a woeful collapse towards the back end of an eventually miserable 2025–26 season for AC Milan. Massimiliano Allegri’s ideals remain antiquated, and Rossoneri supporters suffered plenty as a result.
+22. Bayer Leverkusen: Another team embarking on a reset this summer is Bayer Leverkusen, although theirs won’t be anywhere near as hard as Milan’s. The German club quickly realised they’d made a fatal error by hiring Erik ten Hag a year ago, replacing him with former Denmark manager Kasper Hjulmand a couple of weeks into the season. Hjuland was fine in the role, guiding the 2023–24 Bundesliga invincibles to the Champions League round of 16 and a sixth-place finish domestically. As a result, they’ll be in the Europa League next season. Hjulmand was very much a stopgap. Leverkusen now want their next Xabi Alonso. Could Slot be the man? They’d reportedly been after Liverpool-bound Andoni Iraola, while Oliver Glasner is also supposedly on their shortlist. Slot will surely now be considered, given his availability, and although Leverkusen represent a step down from Liverpool and Milan, the Dutchman would inherit a talented group of players with scope to boom again.
 
-Thus, Milan have pressed the reset button. Missing out on the Champions League, given their position of strength midway through the campaign, rendered Allegri’s position untenable, and he’s only one of several high-profile figures to get the chop.
+23. Ajax: There was talk of Slot returning to his homeland weeks before Liverpool fired him. The 47-year-old has been linked with the Ajax job, having helped the Eredivisie wrestle control back from the Amsterdam giants at Feyenoord. 
+Slot got the Liverpool job off the back of an excellent stint with Ajax’s fiercest rivals, lifting the league title in 2022–23—Feyenoord’s second of the 21st-century. A move to the Johan Cruijff ArenA certainly wouldn’t go down well in Rotterdam, although several high-profile managers have jumped across the Klassieker divide. 2025–26 was tumultuous, to say the least, for Ajax, with three managers tasked with steadying the ship after Francesco Farioli moved on after their title collapse last season. They’ve sounded out Michel as their potential next head coach, but Slot’s availability may trigger a change of thought.
 
-Slot was linked with the vacant Milan job right after his Liverpool dismissal. A frontrunner hadn’t yet emerged in the race to succeed Allegri, but a Premier League title-winning manager may be whom they covet.
-
-Milan will want to return to the 21st century with their next managerial appointment, and although Slot’s soccer can be rather functional, his teams, at their best, at least boast a coherent idea of how to use possession.
-
-It’d be a big job for Slot, given Milan’s lofty prestige, and perhaps an opportunity that’d prove too enticing to ignore.
-
-22. Bayer Leverkusen
-Another team embarking on a reset this summer is Bayer Leverkusen, although theirs won’t be anywhere near as hard as Milan’s.
-
-The German club quickly realised they’d made a fatal error by hiring Erik ten Hag a year ago, replacing him with former Denmark manager Kasper Hjulmand a couple of weeks into the season.
-
-Hjuland was fine in the role, guiding the 2023–24 Bundesliga invincibles to the Champions League round of 16 and a sixth-place finish domestically. As a result, they’ll be in the Europa League next season.
-
-Hjulmand was very much a stopgap. Leverkusen now want their next Xabi Alonso. Could Slot be the man? They’d reportedly been after Liverpool-bound Andoni Iraola, while Oliver Glasner is also supposedly on their shortlist.
-
-Slot will surely now be considered, given his availability, and although Leverkusen represent a step down from Liverpool and Milan, the Dutchman would inherit a talented group of players with scope to boom again.
-
-23. Ajax
-There was talk of Slot returning to his homeland weeks before Liverpool fired him. The 47-year-old has been linked with the Ajax job, having helped the Eredivisie wrestle control back from the Amsterdam giants at Feyenoord.
-
-Slot got the Liverpool job off the back of an excellent stint with Ajax’s fiercest rivals, lifting the league title in 2022–23—Feyenoord’s second of the 21st-century.
-
-A move to the Johan Cruijff ArenA certainly wouldn’t go down well in Rotterdam, although several high-profile managers have jumped across the Klassieker divide.
-
-2025–26 was tumultuous, to say the least, for Ajax, with three managers tasked with steadying the ship after Francesco Farioli moved on after their title collapse last season.
-
-They’ve sounded out Michel as their potential next head coach, but Slot’s availability may trigger a change of thought.
-
-24. Dutch National Team
-
-The Netherlands job has seemingly rotated between Louis van Gaal and Ronald Koeman in recent years, with the latter overseeing their World Cup campaign in North America this summer.
-
-The Oranje, never before world champions and typically associated with glorious failure, were semifinalists at Euro 2024 and could be sneaky outsiders at the upcoming tournament.
-
-Anyway, Koeman’s contract expires at the end of July, and surely Van Gaal won’t be taking the job on again. It’s time for an alternate face.
-
-Koeman’s World Cup staff is laden with Dutch soccer heroes, including Ruud van Nistelrooy, and he may emerge a potential candidate to take the job after the tournament.
-
-Slot hasn’t yet been linked with the national team, and it‘d be a surprise if he dipped out of club soccer at this juncture.
+24. Dutch National Team: The Netherlands job has seemingly rotated between Louis van Gaal and Ronald Koeman in recent years, with the latter overseeing their World Cup campaign in North America this summer. The Oranje, never before world champions and typically associated with glorious failure, were semifinalists at Euro 2024 and could be sneaky outsiders at the upcoming tournament. Anyway, Koeman’s contract expires at the end of July, and surely Van Gaal won’t be taking the job on again. It’s time for an alternate face. Koeman’s World Cup staff is laden with Dutch soccer heroes, including Ruud van Nistelrooy, and he may emerge a potential candidate to take the job after the tournament. Slot hasn’t yet been linked with the national team, and it‘d be a surprise if he dipped out of club soccer at this juncture.
 
 
 # Who will replace Arne Slot?
 25. Spanish coach Andoni Iraola, who left Bournemouth at the end of the season, is the clear frontrunner to take over with Liverpool keen to make a swift appointment.
-Andoni Iraola ticks a lot of boxes.
+Andoni Iraola ticks a lot of boxes. His record during his three-year spell at Bournemouth was exceptional with him guiding them to 12th, ninth and sixth-placed Premier League finishes. He announced in April that he would be stepping down when his contract expired at the end of the season and he left Bournemouth with European football for the first time in their history. Iraola’s body of work is all the more impressive given the sale of players such as Milos Kerkez, Illia Zabarnyi, Dean Huijsen, Dango Ouattara and Antoine Semenyo during his tenure. Hughes knows him as well as anyone given that he appointed him at Bournemouth as Gary O’Neil’s successor in the summer of 2023. The 43-year-old Spaniard fits the bill in terms of the shift in style Liverpool are looking to implement. He’s available with no compensation required and is used to working as a head coach rather than manager.
 
-His record during his three-year spell at Bournemouth was exceptional with him guiding them to 12th, ninth and sixth-placed Premier League finishes. He announced in April that he would be stepping down when his contract expired at the end of the season and he left Bournemouth with European football for the first time in their history.
-
-Iraola’s body of work is all the more impressive given the sale of players such as Milos Kerkez, Illia Zabarnyi, Dean Huijsen, Dango Ouattara and Antoine Semenyo during his tenure.
-
-Hughes knows him as well as anyone given that he appointed him at Bournemouth as Gary O’Neil’s successor in the summer of 2023. The 43-year-old Spaniard fits the bill in terms of the shift in style Liverpool are looking to implement. He’s available with no compensation required and is used to working as a head coach rather than manager.
-
-26. In terms of other possible options, Stuttgart’s Sebastian Hoeness and Lens’ Pierre Sage are admired. Luis Enrique’s claims would be compelling but Liverpool don’t expect him to leave PSG following back-to-back Champions League triumphs.
-
+26. In terms of other possible options, Stuttgart’s Sebastian Hoeness and Lens’ Pierre Sage are admired. Luis Enrique’s claims would be compelling but Liverpool don’t expect him to leave PSG following back-to-back Champions League triumphs. 
 There have been suggestions that delaying the sacking of Slot cost Liverpool the chance to bring in Xabi Alonso. However, the reality is that the new Chelsea boss wasn’t viewed as a serious contender by Edwards and Hughes.
 
-27. Iraola has been a man in demand since it became clear that he was ready to embark on a new challenge. He’s been actively engaged in talks over the past fortnight with Crystal Palace, Bayer Leverkusen and Milan as he weighed up his options.
-
-There was a meeting with representatives from Milan in London the week before last but a second round of discussions proved frustratingly difficult to organise. That adds weight to indications that it was only in recent days that Liverpool reached out to Iraola’s camp.
-
-Now formal talks will follow with the growing expectation that the former Rayo Vallecano boss is Anfield bound.
+27. Iraola has been a man in demand since it became clear that he was ready to embark on a new challenge. He’s been actively engaged in talks over the past fortnight with Crystal Palace, Bayer Leverkusen and Milan as he weighed up his options. There was a meeting with representatives from Milan in London the week before last but a second round of discussions proved frustratingly difficult to organise. That adds weight to indications that it was only in recent days that Liverpool reached out to Iraola’s camp. Now formal talks will follow with the growing expectation that the former Rayo Vallecano boss is Anfield bound.
 
 
