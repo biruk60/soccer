@@ -1,4 +1,4 @@
-# Liverpool fired Slot after winning the title.
+# Liverpool fired Slot after winning the title [ዋንጫ ድሕሪ ምዕታሩ፣ ሊቨርፑል ንስሎት ኣባሪሩዎ።]
 
 1. The news was delivered by Liverpool sporting director Richard Hughes to Arne Slot on Saturday morning. The Dutchman was informed that, with a heavy heart, the decision had been taken to end his two-year reign as the club’s head coach. Liverpool have parted company with Arne Slot after just two seasons in charge after the Dutchman fell short of defending the Premier League title he won during his debut campaign with the Reds. [ ንኣርነ ስሎት  ናይ ምብራሩ መርድእ ዝበፅሖ፣ በቲ ናይ ሊቨርፑል ዳይረክተር ስፖርት ዝኾነ ሪቻርድ ሂዩዝ፣ ቐዳም ንጎሆ ኔሩ።  ንኽልተ ዓመት ተቐሚጥሉ ካብ ዝነበረ ናይ ኣስልጣኒነት መንበር ንኽእለይ፣ ብሕዘን ከም ዝተወሰነ እዩ ነዚ ሆላንዳዊ ዝተነገሮ። ምስቶም ቀያሕቲ ኣብ ዝገበሮ ናይ መጀመርታ ወፍሪ ንዝዓተሮ ናይ ፕሪሜር ሊግ ዋንጫ ምዕቃብ ዘይኻኣለ ስሎት፣ ድሕሪ ፃንሒት ኽልተ ወቕቲታት ጥራይ፣ ምስ ሊቨርፑል ዝነበሮ ርክብ ከም ዝተበተኸ ጋህዲ ኾነ።] 
 
