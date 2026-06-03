@@ -1,52 +1,142 @@
-# Liverpool fired Slot after winning the title [ዋንጫ ድሕሪ ምዕታሩ፣ ሊቨርፑል ንስሎት ኣባሪሩዎ።]
-
-1. The news was delivered by Liverpool sporting director Richard Hughes to Arne Slot on Saturday morning. The Dutchman was informed that, with a heavy heart, the decision had been taken to end his two-year reign as the club’s head coach. Liverpool have parted company with Arne Slot after just two seasons in charge after the Dutchman fell short of defending the Premier League title he won during his debut campaign with the Reds. [ ንኣርነ ስሎት  ናይ ምብራሩ መርድእ ዝበፅሖ፣ በቲ ናይ ሊቨርፑል ዳይረክተር ስፖርት ዝኾነ ሪቻርድ ሂዩዝ፣ ቐዳም ንጎሆ ኔሩ።  ንኽልተ ዓመት ተቐሚጥሉ ካብ ዝነበረ ናይ ኣስልጣኒነት መንበር ንኽእለይ፣ ብሕዘን ከም ዝተወሰነ እዩ ነዚ ሆላንዳዊ ዝተነገሮ። ምስቶም ቀያሕቲ ኣብ ዝገበሮ ናይ መጀመርታ ወፍሪ ንዝዓተሮ ናይ ፕሪሜር ሊግ ዋንጫ ምዕቃብ ዘይኻኣለ ስሎት፣ ድሕሪ ፃንሒት ኽልተ ወቕቲታት ጥራይ፣ ምስ ሊቨርፑል ዝነበሮ ርክብ ከም ዝተበተኸ ጋህዲ ኾነ።] 
-
-2. With a once-dominant team seemingly disintegrating in front of him as the season rolled on, the 47-year-old was only able to oversee an underwhelming fifth-place finish in his second year at Anfield, leading to his dismissal on Saturday. The Reds salvaged Champions League qualification but limped across the line with just 60 points, their lowest total for a decade. [እቲ ወቕቲ እናተጠቕለለ እንትኸይድ፣ እቲ ኣብ ሓደ እዋን ዓብላሊ ዝነበረ ጋንታ ዓይኑ እንዳራኣየ እንትበታተን፣ እቲ ወዲ 47 ዓመት ዝኾነ ስሎት፣ ዝተሓተ ሓምሻይ ደረጃ ጥራይ ብምውፃእ እዩ ናይ ኣንፊልድ ካልኣይ ዓመቱ ዛዚሙ። ዋላ እኳ ንመፃረዪ ሻምፕዮንስ ሊግ እንተበቕዑ፣ ካብ ዝነበሮም ዓሰርተ ዓመት እቲ ዝወሓደ፣ 60 ነጥቢ ጥራይ ብምምዝጋብ እዮም ነቲ መስመር ብሰንከልከል ዝሰገሩዎ። ]
-
-3. Slot effectively continued Jürgen Klopp's legacy at Anfield by delivering the Premier League title in 2024-25, winning the league by a 10-point margin. However, things gradually began to fall apart in the Dutchman's second season in charge and a fifth-place finish (25 points off the top) coupled with underwhelming cup runs and a high-profile quarrel with departing hero Mohamed Salah appear to have sealed his fate. [ንሊግ ብ10 ነጥቢ ፍልልይ ብምዕዋታ፣ ኣብ ናይ 2024-2025 ንዘሎ ዋንጫ ፕረምየርሊግ ብምዕታር፣ ስሎት ንሕድሪ ዩርገን ክሎፕ ኣብ ኣንፊልድ ቀጺሉዎ እዩ። ኾይኑ ግን፣ ኣብ መበል ካልኣይ ዓመት እዞም ሆላንዳዊ ኣስልጣኒ፣ ነገራት በብቑሩብ ክፈርሱ ጀመሩ። ብሓምሻይ ደረጃ ነዚ ወቕቲ ምዝዛም፣ ኣዝዩ ትሑት ዝኾነ ፃዕሪ ዘርኣዩሉ ናይ ዋንጫ ተሳትፎ፣  ከም ስጡሕ ፃሓይ ዝወቕዖ ምስ መሓመድ ሳላሕ ዝገበሩዎ ባእሲ፣ ዕፃ ፋንታ ናይ እዞም ሰብኣይ  ደምደሞ።]
-
-4. While it may seem callous to sack a manager almost exactly a year on from lifting a league title, Slot's dismissal is hardly without precedent. Indeed, many of the top clubs across Europe's big five leagues having pulled the plug on managers 12 months on (or sooner) after winning a league title over the course of the past two decades. [ዋላ እኳ ሓደ ዓመት ዋንጫ ድሕሪ ምዕታሩ ንሓደ ኣሰልጣኒ ካብ ስልጣኑ ምብራር ጭካነ እንተመሰለ፣ ዘይንቡር ግን ኣይኾነን። ብሓቂ፣ ኣብ ዝሓለፉ ኽልተ ዓሰርተ ዓመታት፣  ኣብ ኣውሮጳ ካብ ዘለዎ ሓሙሽተ ሊጋት እቶም መብዛሕተኦም ዓበይቲ ጋንታታት፣ ዋንጫ ድሕሪ ምዕታር ኣብ መበል ሓደ ዓመት ወይ ትሕቲኡ ንኣስልጠንቶም ኣባሪሮሙዎም እዮም። ]
-
-5. Slot didn’t see it coming. “I have every reason to believe I am the Liverpool manager next season,” he told reporters before the penultimate game of the season at Villa Park.
-Behind the scenes, he remained fully involved in talks over pre-season and summer recruitment plans.  Slot had lined up Etienne Reijnen, his former assistant at Feyenoord, to join his backroom staff this summer. He had initially wanted to bring Reijnen with him when he took over from Jurgen Klopp two years ago but he couldn’t get a work permit. Now that was no longer an issue, Reijnen recently said his goodbyes at the Dutch club and expected to be reunited with Slot at Anfield. However, no contract was signed. Slot had continued to speak to players about their summer plans and preparations for next season in the belief that he would get the opportunity to put right what had gone so wrong. On Saturday morning, those hopes lay in tatters. [እዚ፣ ንስሎት፣ ዘይተፀበዮ ነገር እዩ ኾይኑዎ። "ንዝመፅእ ዓመተ፣ ኣሰልጣኒ ሊቨርፑል ኾይነ ከም ዝቕፅል ዝኣምነሉ ኩሉ ዓይነት ምኽንያት ኣለኒ።" ክብል፣ ቅድሚ መወዳእታ ጸወታ ናይዚ ዓመተ ስፖርት፣  ኣብ ቪላ ፓርክ ንጋዜጠኛታት ተዛሪቡ ኔሩ። ብድሕሪ መጋረጃ፣ ኣብ መደባት ምልመላ ቅድመ ወቕትን ሓጋይን   ኣብ ዝነበሩ ምይይጣት ምሉእ ብምሉእ ክሳተፍ ፀኒሑ እዩ። ስሎት፣ ኣብዚ ክራማት ምስ ሰራሕተኛታት ድሕሪት ክፍሉ ንኽፅንበር ኣብ ፈየኖርድ ተሓጋጋዚኡ ንዝነበረ ኢቲየን ረይነን ኣሰሊፉ ነይሩ። ኣብ መጀመርታ ቅድሚ ክልተ ዓመት ካብ የርገን ክሎፕ ስልጣን ክሕዝ ከሎ፣ ንሬይነን ሒዙ ክመጽእ ደልዩ እኳ እንተነበረ፣ ናይ ስራሕ ፍቓድ ክረክብ ግን ኣይከኣለን ኔሩ። እዚ ፀገም ሕዚ ስለ ዝተፈትሐ፣ ራይነን ኣብዚ ቀረባ እዋን ካብታ ሆላንዳዊት ክለብ ተሳናቢቱ፣  ምስ ስሎት ኣብ ኣንፊልድ ዳግማይ ንክራኸብ ትፅቢት ነይርዎ። ይኹን እምበር፡ ዝኾነ ውዕል ኣይተፈረመን። ስሎት፣ ነቲ ክሳብ ክንድዚ ዝተጋገዮ ንምእራም ዕድል ክረክብ እዩ ብዝብል እምነት፣ ብዛዕባ መደባቶምን ንዝመፅእ ዓመተ ስፖርት ናይ ሓጋይ ምድላዋትን ንተፃወትቲ ምዝርራቡ ቀፂሉ ነይሩ። ሰንበት ንግሆ፡ እቶም ተስፋታት፣ ፅሓይ ከም ዝወቕዖ ዛዕዛዕታ ንግሆ፣ ክተኑ ረኣዮም። ]
-
-# Why Liverpool sacked Arne Slot?
-6. When the wheels came off during a desperate run of nine defeats in the space of 12 matches between late September and late November, the message from the club’s hierarchy was emphatic — Slot still enjoyed their full support. It was repeated in April after chastening defeats by Manchester City in the FA Cup and Paris Saint-Germain in Europe consigned Liverpool to a season without a trophy and left them scrambling for the consolation prize of Champions League qualification. There was sympathy for what Slot had been forced to contend with. The backdrop to the season had been one of tragedy following Diogo Jota’s death, along with his brother Andre Silva, in a car crash in Spain last July. Senior FSG figures had great admiration for the leadership Slot showed in the most difficult of circumstances. [ዋላ ድሕሪ ካብ መወዳእታ መስከረም እስካ መወዳእታ ሕዳር ዝዘለቐን ካብ 12 ግጥም ብ9 ስዕረት ዝተዛዘመን ዘይስልጡ ውድድር፣ ቅዋም መሪሕነት እቲ ጋንታ ንፁርን ነቕ ዘይብልን እዩ ኔሩ። ስሎት ሙሉእ ድጋፍ እቲ መሪሕነት ኣለዎ ዝብል። ድሕሪ ኣብ ኤፍ ኤ ዋንጫ ብማንችስተር ሲቲን ኣብ ኣውሮጳ ብ ፓኺ ሳንጀርማን ዝተገበሩሉ ኽሳድካ ዘድንኑ ስዕረታት፣ ናይ ቻምፕዮንስ ሊግ መፃርዪ ብምሕላፍ ጥራሕ ክፅናዕናዕ ዝተፈረደሉ ሊቨርፑል፣ ዋላ ኣብ ወርሒ ጉንበት፣ ስሎት ናይ መሪሕነት ድጋፍ ኣይተፈለዮን ኔሩ። ስሎት ንዝገብሮ ዝነበረ ፃዕሪ ሓዘኔታ ኔሩ። ናይ እዚ ወቕቲ ድሕረ ባይታ፣ ኣብ መወዳእታ ሓምለ ኣብ ስፔን ብሰንኪ ሓደጋ መኪና፣ ሕልፈተ ህይወት ድያጎ ጆታን ሓው ኣንድሬ ሲልቫን ስዒቡ ብዝነበረ ሓዘን ዝታዓጀበ እዩ ኔሩ። ላዕለዎት ሰብ መዚ ኤፍ.ኤስ.ጂ፣ ስሎት ኣብቲ ኣዝዩ ከቢድ ኩነታት ንዘርኣዮ ናይ ኣመራርሓ ብቕዓት፣ ዓብዪ ኣድናቖት ነይርዎም።]
-
-
-7. Hughes and Michael Edwards had previously indicated that they were going to stand by Slot given the mitigating factors which had contributed to Liverpool’s fortunes nosediving. However, having taken stock in the week following the end of the season, they came to the conclusion that a change was required given the mood both within the dressing room and the fanbase. [ዋላ እኳ ህዩስን ሚካኤል ኤዳውርድስን ንስሎት ዘሎውም ድግፍ ቕድሚ እሎም እንተገለፁ፣ ኾይኑ ግን፣ ድሕሪ ምዝዛም ዓመተ ስፖርት ኣብ ዝነበረ ሰሙን፣ ነግራት መዚኖም፣ ኣብ ውሽጢ ኽዳን መቕየሪን ናይ ደገፍቲ ዘሎ ስምዒትን ኣብ ግምት ብምእታው፣ ለውጢ ኣገዳሲ ምዃኑ ኣመኑ። ]
-
-8. Slot’s job had also been made harder by the downturn in form of established stars such as Salah, Alexis Mac Allister, Ibrahima Konate and Cody Gakpo. The breakdown in the relationship between Salah and Slot was one of the sub plots of the season with the Egyptian forward adamant that he had been made a scapegoat for the team’s struggles when he was dropped in November, telling reporters in December he had been “thrown under the bus”. Injuries did not help, either. Record signing Alexander Isak arrived unfit following his protracted £125m move from Newcastle United and then missed nearly four months with a broken left leg. Giovanni Leoni and Conor Bradley both suffered season-ending knee injuries, while 17-goal top scorer Hugo Ekitike ruptured his right Achilles tendon. Alisson, Jeremie Frimpong and Wataru Endo also had significant spells on the sidelines. There was an acceptance that a lot of the £450m invested in the squad last summer hadn’t been on the field often enough. Florian Wirtz, who needed a lengthy period of adaptation to English football, Isak and Ekitike played just 118 minutes of football together. [ብሰንኪ፣ ከም በዓል ሳላሕ፣  ኣሌክሲስ ማክ ኣሊስተር፣ ኢብራሂማ ኮናቴን ኮዲ ጋክፖን ዝኣመሰሉ ምሩሩፃት ኮኾባት ዝነበረ ቁጠባዊ ምንቁልቋል፣ ንስሎት ስራሕ ዝያዳ ተሪርዎ ነይሩ። ኣብ መንጎ ሳላሕን ስሎትን ዝነበረ ዘይምቅዳው፣ ሓደ ካብቶም ንኡሳን ዛንታታት ናይዚ ዓመተ ስፖርት እዩ ነይሩ። እዚ ግብጻዊ ኣጥቃዒ፣ ኣብ ወርሒ ሕዳር ንግዚኡ ካብቲ ጋንታ ምስ ተቐነስ፣ ንናይ እቲ ጋንታ ሓፈሻዊ ድኽምት መመኽኔታ ተጌረ እየ ኢሉ ንጋዜጠኛታት ከም ዘንፀርፀረ ዝዝከር እዩ። ናይ ተፃወቲ መጉዳእቲታት ምብዝሕ እውን፣ ነቲ ኹነት ኣጋደዶ። ናይ ምፍራም ክብረወሰን ዝሰበረ ኣሌክሳንደር ኢሳቕ፣ ድሕሪ ነዊሕ እዋን ዝወሰደ ናይ 125 ሚልዮን  ፓውንድ ካብ ኒውካስል ዩናይትድ ዝውውር፣ ብቕዓት ከይሓዘ እዩ ናብ ሊቭርፑል መፂኡ። ሽዑ ንሽዑ ድማ፣ ብሰንኪ ስብራት ፀጋማይ እግሩ፣ ንኣስታት ኣርባዕተ ኣዋርሕ ካብ ጸወታ ኣብኵሩ እዩ። ጆቫኒ ሊዮኒን ኮነር ብራድሊን፣ ክልቲኦም፣ ወቕቲ ሙሉእ ካብ ፅዋታ ክእለዩ ዝገብሮም ናይ ብርኪ ማህሰይቲ ኣጋጠሞም። 17 ጎላት ዘመዝገበ ብሉጽ ኣመዝጋቢ ሸቶ ሁጎ ኤኪቲከ ድማ፣ ናይ የማናይ ኣኪለስ ጅማቱ ተበቲኸ። ኣሊሰን፣ ጀረሚ ፍሪምፖንግን ዋታሩ ኢንዶን እውን ሓያሎ ግዜ ኣብ ቤንች ኣሕሊፎም እዮም። ካብቶም 450 ሚልዮን ፓውንድ ወፍሪ ዝተገበረሎም ተፃወትቲ፣ መብዛሕቲኦም ኣብ ሜዳ ከምዘይተሳተፉ፣ ርድኢት ዝተገበረሉ ሓቂ እዩ። ምስ ኩዕሶ እግሪ እንግሊዝ ንምስናይ ንነዊሕ እዋን  ዘድልዮ ዝነበረ ፍሎርያን ዊርፅ፡፣ኢሳቕን ኤኪቲከን ብሓባር 118 ደቓይቕ ጥራይ ኩዕሶ እግሪ ተጻዊቶም።]
-
-9. The spat with Salah didn’t cost Slot his job. Much more significant in the final decision was his inability to find solutions to the team’s glaring weaknesses as a blanket of negativity descended during the run-in with performances so lifeless and disjointed. His complaints about facing “low blocks” and being faced with “negative set-piece balances” started to wear thin with the most damning assessment from fans that they felt bored by the slow brand of football. When Liverpool enjoyed back-to-back wins over Everton and Crystal Palace in late April, there were aspirations of leapfrogging Manchester United into third place. They only needed four points from their remaining four matches to be guaranteed a top-five finish. But they took just two out of the last 12 points on offer. A chastening defeat at Old Trafford was followed by a home draw with Chelsea in which Slot was subjected to the kind of dissent a Liverpool manager hadn’t faced at Anfield since the final days of Roy Hodgson’s reign in 2010-11. His decision to substitute Rio Ngumoha was greeted with a torrent of boos. More followed at the final whistle. The noise would have been louder but for the thousands of empty seats. Hughes was sitting in the directors’ box that day when supporters vented their spleen at the sight of Slot’s side retreating and slowing the game down when they were 1-0 up rather than going for the jugular. The disconnect between what fans expected and what was being served up was stark.  The 4-2 defeat at Aston Villa was equally damaging and the 1-1 draw with Brentford on the final day wasn’t much better. Rather than pinpointing one moment as the breaking point, senior club sources suggest that faith in Slot slowly ebbed away during those closing weeks. [ስሎት ካብ ስርሑ ዝተባረረ፣ ምስ ሳላሕ ብዝተፈጠረ ምትፍናን ጥራሕ ኣይነበረን። እኳ ዳኣስ፣ ኣብቲ ናይ መወዳእታ ውሳነ ኣዝዩ ኽብደት ዝነበሮ፡ ነቲ ኣብታ ጋንታ ሊቨርፑል ዝነበረ ርኡይ ድኽመታት፣ ስሎት ፍታሕ ክረክብ ዘይምኽኣሉ እዩ። ኣብቲ ሩሕ ዘይነብሮን ፋሕ ብትን ዘበለን ፅዋታ  ኣሉታዊ ደባብ ኣንፀላለወ። ደገፍቲ እቲ ጋንታ፣ ብናይ ስሎት ዝንጉዕ ኣገባብ ኩዕሶ እግሪ ከም ዝተሳላቸዉ ገሊፆም። ኣብ መወዳእታ ወርሒ ሚያዝያ፣ ሊቨርፑል  ኣብ ልዕሊ ኤቨርተንን ክሪስታል ፓላስን ብዝገበሮ ተኸታታሊ ዓወት፣ ንማንቸስተር ዩናይትድ ተናጢሩ ሳልሳይ ደረጃ ክሕዝ እዩ ዝብል ባህጊ ኔሩ። ኣብ ውሽጢ ብሉጻት ሓሙሽተ ንምውዳእ፣ ካብ ዝተረፉ 4 ግጥማት 4 ነጥቢ ጥራይ እዩ ዘድልዮም ነይሩ። ካብተን ዝሓለፋ 12 ነጥቢ ግን ክልተ ጥራይ እዮም ክወስዱ ኽኢሎም። ኣብ ኦልድትራፎርድ ዘጋጠማ መሕፈሪ ስዕረት ስዒቡ፣ ኣብ ሜድኦም ምስ ቸልሲ ብመዓረ ተፈላለዩ። ሺዑ፣ ኣብ 2010-11 ንዝነበረ ናይ መወዳእታ መዓልታት ስልጣን ሮይ ሆድሰን ኣብ ኣንፊልድ ዝገጠሞ ዓይነት ተቓውሞ ንስሎት ገጠሞ። ንሪዮ ንጉሞሃ ንምትካእ ዝወሰዶ ውሳነ፣ ሓያል ናይ ተቓውሞ ጭዳረ ኣጋጠሞ። ናይ መወዳእታ ፊሽካ ምስ ተነፍሐ ድማ፣ ተውሳኺ ተቓውሞ ጭዳረ ካብ ደገፉቱ ኣስዓበ። ሓድ ንባዶ እንዳመርሑ ኸለው፣ ስሎት ዝያዳ ኽንዲ ምጥቃዕ ኣብ ምክልኻልን ነቲ ፅዋታ ኣብ ምዝሕሓል ከም ዝተፀመደ ዝተዓዘቡ ደገፍቲ ብሕራሮት መሬት ዕንፅራር እንትገብሩዎ፣ ሂዩዝ ኣብ ሳንዱቕ ዳይረክተራት ኮፍ ኢሉ ይዕዘብ ነበረ። ኣብ መንጎ ት ፅቢት ደገፍቲን እቲ ጋህዳዊ ሓቂን ዝነበረ ሓጓፍ ኣዝዩ ሰፊሕ እዩ ኔሩ። ኣብ ኣስቶን ቪላ 4 ብ 2 ዝተሳዕረትሉ ፅወታ እውን ማዕረ መሕረሪ እዩ ኔሩ። ኣብ መወዳእታ መዓልቲ ምስ ብሬንትፎርድ 1 ብ 1 መዓረ ዝወፁሉ ግጥም ተኾነ እውን ብዙሕ ዝሓሸ ኣይነበረን። ፍልፍላት ከም ዝሓበሩዎ፣ ናይ ስሎት ካብ ሊቨርፑል ምብራር፣ ብሰንኪ ሓንቲ ዓይብዪ ህሞት ዘይኮነስ፣  ኣብተን መዕፀዊ ሰሙናት ኣብ ስሎት ዝነበረ እምነት ቀስ ብቐስ ስለ ዝጎደለ እዩ።]
-
-10. Eyebrows were raised when Slot didn’t take part in the traditional lap of appreciation following the final game of the season at home against Brentford. He sat alone in the dugout while departing legends Mohamed Salah and Andy Robertson accepted the acclaim of Anfield. People close to the Dutchman insist that was down to him wanting to ensure the spotlight remained on Salah and Robertson rather than a sign that he knew his days at the club were numbered. [ኣንፃር  ብሬንትፎርድ ኣብ ዝተኻየደ ናይ መወዳእታ ፀወታ ናይ’ዚ ዓመተ ስፖርት ስዒቡ ኣብ ዝተገበረ እቲ ንቡርን ባህልዋኢን ምርኢት ምድናቕ ስሎት ዘይምስታፉ፣ ንብዙሓት ሰባት ኣደንፅዮውም እዩ። ከም መሓመድ ሳላሕን ኣንዲ ሮበርትሰንን ዝኣምሰሉ  ተሳናበትቲ ሰብ ቅያታት ኣብ ኣንፊልድ ናእዳ እንትቕበሉ፣ ስሎት ግን ኣብቲ ናይ ጋንታ በዓቲ ንበይኑ ኾፍ ኢሉ ኔሩ። ምስዚ ሆላንዳዊ ቅርበት ዘለዎም ሰባት፣  ካብ ሳላሕን ሮበርትሰንን ትኹረት ንከይቃፀፅ ኢሉ እምበር፣ ምስ እቲ ጋንታ ዘለዎ ፃንሒት ምዝ ዛሙ ዘማላኽት ኣይኾነነ ይብሉ ኔሮም። ] 
-
-
-# Arne Slot writes emotional open letter after sacking
-
-11. In an emotional open letter published in the Liverpool Echo, external, Slot said fans made him feel welcome from the start and helped him on his path. "That is something I cherish," he added. "I leave with complete confidence in what lies ahead. "The players who have given so much to this club, who have upheld its values and helped create so many unforgettable moments, have built foundations that will endure." Despite suffering 20 defeats in all competitions, Slot secured Liverpool's place in next season's Champions League. "Securing Champions League football was an important responsibility and one that ensures Liverpool can continue competing at the highest level next season and beyond," he added. "Change is part of football, but I know that this club will continue to make its people proud. "When I first stood beneath that sign in the Anfield tunnel, I knew what this club demanded. I leave knowing we never stopped striving for it." "It was made even more meaningful because you got to enjoy it with us," said Slot. "Singing our songs, cheering the goals. And on the day we lifted the trophy, you were there - lining the streets outside the stadium, filling Anfield in anticipation. "Having had much of that taken from you in 2020, it was never lost on me how much it mattered that you were part of it all. "Seeing you come together in your hundreds of thousands on the streets of Liverpool for the title celebrations only reinforced that idea. "Liverpool's 20th league title belongs to all of us and it will remain an important chapter in its history. For that we should all be proud. "This club will always judge itself by the biggest honours. That is how it should be."     [ስሎት ኣብ ሊቨርፑል ኢኮ ኣብ ዝዘርግሖ ስምዒታዊ ቕሎዕ ደብዳበ፣ ካብ ፈለማ ኣትሒዙ፣ ደገፍቲ ሊቨርፑሉ መርሓባ ከም ዝበሎዎን ኣብ ጉዕዝኡ እውን ከም ዝደገፉዎ ሓቢሩ። ኣነ እዚ ዝሕብሕቦ ነገር እዩ ክብል ወሲኹ ገለፀ። ኣብ መፃኢ ግዜ ሙሉ እምነት ኣሕዲረ አየ ካብዚ ጋንታ ዝፍለይ። እቶም ነዚ ጋንታ ብዙሕ ዘወፈዩ ፣ ክብርታቱ ዝዓቀቡን ብዙሓት ዘይርስዑ ህሞታት ዝፈጠሩ ተፃወትቲ፣ ነባሪ ዝኾነ ሰረት ሃኒፆም እዮም።" ዋላ እኳ ካብ ኩሉ ውድድራት 20 ስዕረት እንተኣትኣናገደ፣ ስሎት ግን ኣብ ዝመፅእ ዓመት ኣብ ዝካየድ ናይ ሻምፕዮንስ ሊግ ንናይ ሊቨርፑል ቦታ ኣውሒሱ እዩ። "ኩዕሶ እግሪ ሻምፕዮንስሊግ ምውሓስ ኣገዳሲን፣ ሊቨርፑል ኣብ ዝመፅእ ዓመተ ስፖርትን ኪኖኡን ብዝለዓለ ደረጃ ክትቅጽል ከምእትኽእል ዘረጋግፅ ሓላፍነት እዩ ነይሩ" ክብል ወሲኹ ገሊጹ። ለውጢ ኣካል ኩዕሶ እግሪእዩ፡ እንተኾነ ግን እዛ ክለብ ንህዝባ ክትሕበን ምዃና እፈልጥ እየ። ኣብ ትሕቲ እቲ ምልክት ጉሕጓሕ ኣንፊልድ ንመጀመርታ ግዜ ደው ክብል ከለኹ እዛ ክለብ እንታይ ከም እትጠልብ ፈሊጠ ነይረ። ነቲ ጠለብ ንምግሃድ ንፃት እውን ፃዕርና ከም ዘየቋረፅና እንዳፈለጥኩ እየ ካብዚ ጋንታ ዝሳናበት ዘለኹ። ነቲ ፃዕሪ ምሳና ክተስተማቕሩዎ ብምኽኣልኩም ድማ፣ ዝያዳ ትርጉም ክህልዎ ኽኢሉ እዩ ክብል ስሎት ገሊፁ። "ደርፍታትና እናደረፍና፡ ብሸቶታትና  እናተሓጎስና። ኣብታ ዋንጫ ዘልዓልናላ መዓልቲ ድማ ኣብኡ ነይርኩም፣ ካብ ስታድዩም ወጻኢ ኣብ ጎደናታት ተሰሪዕኩም፡ ንኣንፊልድ ብትፅቢት እናማዓደኹም። ኣብ 2020 ብዙሕ ዝተመንጠልኩም፣ ኣካል ናይዚ ኩሉ ምዃንኩም ክሳብ ክንደይ ኣገዳሲ ምዃኑ ዘንጊዐዮ ኣይፈልጥን። ኣብ ጎደናታት ሊቨርፑል ብኣማኢት ኣሽሓት ተኣኪብኩም ንፅምብል ዋንጫ ክትመፅ ምርኣይ፣ ነቲ ሓሳብ ዘራጉድ ጥራይ እዩ። ናይ ሊቨርፑል መበል ፳ ዋንጫ ሊግ ናይ ኩላትና እዩ።  ኣብ ታሪኻ ድማ ኣገዳሲ ምዕራፍ ኮይኑ ክቕፅል እዩ። በዚ ድማ ኩላትና ክንሕበን ይግባእ። እዛ ጋንታ፣ በቲ ዝዓበየ ክብሪ ኩሉ ግዜ ንነብሳ ክትምዝኖ እያ። ከምኡ ክኸውን እውን እዩ ዘለዎ። ]
-
-12. In his letter, Slot paid tribute to the late Liverpool forward Diogo Jota, who died in a car crash alongside his brother Andre Silva as the players were preparing to return for pre-season training last summer. The Dutchman said Jota's passing was "indescribable", but added "the love, compassion and support shown by the Liverpool family was extraordinary". Slot said: "As I leave this club, it would be remiss of me not to say that the way you honoured Diogo and stood together in his memory will stay with me forever. "The connection we share goes beyond football, beyond European nights under the Anfield lights or the sound of 'You'll Never Walk Alone' being sung from The Kop." [ዝሓለፈ ክራማት ተፃወትቲ ንልምምድ ቅድመ ዓመት ስፖርት ክምለሱ ኣብ ዝዳለዉሉ ዝነበሩ እዋን፡ ምስ ሓዉ ኣንድሬ ሲልቫ ብሓደጋ መኪና ንዝሞት  ነፍስሄር ኣጥቃዓይ ሊቨርፑል ዲዮጎ ጆታ፣ ስሎት ኣብ ደብዳቤኡ  ክብሪ ሂቡ። እዚ ሆላንዳዊ፡ ሞት ጆታ "ክግለጽ ዘይካኣል" ምዃኑ እንተገለፀ  እኳ፡ "ስድራቤት ሊቨርፑል ዘርኣይዎ ፍቕርን ርህራሄን ደገፍን ፍሉይ እዩ" ኢሉ። "ካብዛ ክለብ ክወፅእ ከለኹ፡ እቲ ንዲዮጎ ዘኽበርኩሙሉን ኣብ ዝኽሩ ብሓባር ደው ዝበልኩሙሉ ኣገባብ ንዘልኣለም ምሳይ ከም ዝፀንሕ ምግላፀ እንተረሲዐ፣ ሞት ይረሳዓኒ ክብል ስሎት ገሊፁ። እቲ ዘለና ርክብ ኪና ኩዕሶ እግሪ፣ ኪኖ ኣብ ትሕቲ መብራህቲ ኣንፊልድ ዘሕለፍናዮም ኤውሮጳዊ ምሸታት ወይ ድማ ኪኖ ኣብ ኮረብታ ስታድዮምና ዝደረፍናዮ "You'll Never Walk Alone" እዩ።]
-
-13. Slot also told fans he was "privileged to witness first-hand your spirit of compassion and unity" during the club's trophy parade in May 2025. "It is a spirit that has carried this city through difficult moments before, and one that I hope will help bring the justice and accountability so many have campaigned for over many years," he added. [ስሎት ብተወሳኺ ኣብ ግንቦት 2025 ኣብ ዝተኻየደ ናይ ዋንጫ ሰልፊ እታ ክለብ "ናይ ሕልዮትን ሓድነትን መንፈስኩም ብቐጥታ ናይ ምርኣይ ፍሉይ ዕድል ዝረኸብኩሉ እዩ" ክብል ገሊፁ። "ነዛ ከተማ ቕድሚ ሕዚ ካብ ከቢድ ህሞታት ዝስተር መንፈስ እዩ። እዙይ መንፈስ ድማ፣ ንብዙ ዓመታት ጎስጓስ ንዝገበሩ  ፍትሕን ተሓታትነትን ዘምፅእ እዩ ዝብል ተሰፋ ኣለኒ።"]
-
-# Four potential destinations for Arne Slot After Liverpool
-
-14. Still, the 47-year-old is unlikely to have any issues moving forward. Slot remains very hireable, and there‘s bound to be multiple clubs who at least entertain a plunge this summer, assuming he wants to get straight back into it. [ዝኾነ ኾይኑ፣ እዚ ወዲ 47 ዓመት ሰብኣይ፣ ኣብቐፃሊ ናይ ስራሕ ጉዕዙኡ ዕንቅፋት ዘጋጥሞ ኣይምስልን። ምኽንያቱ፣ ስሎት፣ ሕዚ እውን ተጠላቢ ኣሰልጣኒ እዩ። እሱ ብዘይ ዕረፍቲ ናብ ስራሕ ክኣቱ ሕርያ ተልይዎ፣ ኣብዚ ሓጋይ ዝማናጠላሉ ብዙሓት ጋንታታት ኣለዋ።]
-
-15. AC Milan: A pitiful title charge culminated in a woeful collapse towards the back end of an eventually miserable 2025–26 season for AC Milan. Massimiliano Allegri’s ideals remain antiquated, and Rossoneri supporters suffered plenty as a result. Thus, Milan have pressed the reset button. Missing out on the Champions League, given their position of strength midway through the campaign, rendered Allegri’s position untenable, and he’s only one of several high-profile figures to get the chop. Slot was linked with the vacant Milan job right after his Liverpool dismissal. A frontrunner hadn’t yet emerged in the race to succeed Allegri, but a Premier League title-winning manager may be whom they covet. Milan will want to return to the 21st century with their next managerial appointment, and although Slot’s soccer can be rather functional, his teams, at their best, at least boast a coherent idea of how to use possession. It’d be a big job for Slot, given Milan’s lofty prestige, and perhaps an opportunity that’d prove too enticing to ignore. [ንዋንጫ ዝተገበረ ዘይስሉጥ ምልልሓፅ፣ መወዳእትኡ፣ ኤሲ ሚላን ኣብ 2025-2026 ኣብ ዝነበረ ስፖርታዊ ወቕቲ፣ ጭራ መስርዕ ተሰሊፉ ንኽወፅእ እዩ ይኾይኑ። ናይ ማሲሚልያኖ ኣለግሪ ዝኣረገ ኣካይዳ፣ ንሞራል ደገፍቲ ሮሶነሪ ኣኸርፊሑዎ እዩ። እዙይ ሚላን ከም ብሓዱሽ ሀ ኢሎም ንኽጅምሩ ኣገዲዱዎም እዩ። ኣብ መፋርቕ ወፍሪ ዝነበሮም ሓይሊ ኣብ ግምት እንትነእቱ፣ ኣብ ቻምፕዮን ሊግ ዘይምስታፎም፣ ንቐፃልነት ኣለግሬ ዘይሕሰብ ክኾን ጌሩዎ እዩ። ስለዚ ድማ፣ ኣለግሬ፣ ክስጎጉ ከብ ዝተፈረደሎም ላዕለዎት መሪሕነት ጋንታ ሚላን እቲ ሓደ ንኾን ጌሩዎ እዩ። ስሎት ካብ ሊቨርፑል ምብራሩ ምስ ተፈልጠ፣ ነቲ ኣብ ሚላን ዘሎ ኽፉት ናይ ስራሕ ቦት ክሽፍኑ ካብ ዝተሓፀዩ እቲ ሓደ ኾይኑ። እስካብ ሕዚ፣ ኣብ ቅድሚት ዝስራዕ ንኣለግሪ መተካእታ ሕፁይ የለን። ኾይኑ ግን፣ ናይ ፕርሜር ሊግ ዋንጫ ዝሰዓረ ኣሰልጣኒ ተሃራፊ እዩ። ሚላን፣ ናብ 21 ክፍለ ዘመን ዘሳግራ ኣሰልጣኒ እያ ትጠልብ። ዋላ እኳ ናይ ስሎት ስፖርታዊ ቅጥዒ፣ ሩሕ ዘይብሉ፣ ከም ማሽን ዝዓይነቱ ደረቕ ነገር እንተኾነ፣ እንተወሓደ ዝሓዝካያ ኩዑሶ ከመይ ክትጥቀመላ ከም ዘለካ ኣፀቢቁ ዝፈልጥ ሜላ ኣለዎ። ናይ ሚላን  ልዑል ክብሪ ኣብ ግምት እንትነእቱ፣ እዙይ ንስሎት ዝለዓለ ናይ ስራሕ ዕድል እዩ። ምናልባት እውን፣ ሸለል ኢልካ ክትሓልፍ ዘይትኽእል ፍሉይ ዕድል።]
-
-16. Bayer Leverkusen: Another team embarking on a reset this summer is Bayer Leverkusen, although theirs won’t be anywhere near as hard as Milan’s. The German club quickly realised they’d made a fatal error by hiring Erik ten Hag a year ago, replacing him with former Denmark manager Kasper Hjulmand a couple of weeks into the season. Hjuland was fine in the role, guiding the 2023–24 Bundesliga invincibles to the Champions League round of 16 and a sixth-place finish domestically. As a result, they’ll be in the Europa League next season. Hjulmand was very much a stopgap. Leverkusen now want their next Xabi Alonso. Could Slot be the man? They’d reportedly been after Liverpool-bound Andoni Iraola, while Oliver Glasner is also supposedly on their shortlist. Slot will surely now be considered, given his availability, and although Leverkusen represent a step down from Liverpool and Milan, the Dutchman would inherit a talented group of players with scope to boom again. [ኣብዚ ሓጋይ፣ ሀ ኢሉ ክጅምር ዝወሰነ ኻልእ ጋንታ ባየር ለቨርኩሰን እዩ። ቕድሚ ሓደ ዓመት ንኤሪክ ቴን ሃግ ብምቑፃር ኣዕናዊ ጌጋ ከም ዝፈፀመ ቐልጢፉ ዝተረዲኡ እዚ ጋንታ፣ ናይ እዚ ዓመት ስፖርታዊ ወቕታ ክዛዘም ኽልተ ሰሙን ምስ ተረፎ፣ ብዴንማርካዊ ኣስልጣኒ ካስፐር ሂጁልማንድ ተኪኡዎ እዩ። ንናይ 2023-2024 ቡንደስ ሊጋ ተዓዋቲ ጋንታ፣ ኣብ ንሻምፕዮንስ ሊግ መብል 16፣ ኣብ ውሽጢ ሃገር ድማ መበል 6 ኣስሪዑ ብምዝዛም፣ ዘላቒ ኣሰልጣኒ ዘይኾነስ ግዝያዊ ፍታሕ ንሙዃን ዝተቐፀረ ጁልማንድ፣ ዝተውሃቦ ሓላፍኒት ብግቡእ ተወፂኡ እዩ። በዚ ምኽንያት ድማ፣ ንቐፃሊ ስፖርታዊ ዓመት ኣብ ኣውሮጵ ሊግ ናይ ምስታፍ ውሕስነኦም ዝተረጋገፀ እዩ። ሕዚ ለቨርኩሰን፣ ዘመነ ዣቢ ኣሎንዞ ዝምልሰሎም ኣስልጣኒ እዮም ዝእልሹ ዘለው። ስሎት፣ ኻልኣይ ኣሎንዞ ይኾን ዶ ኾን? ናብ ሊቨርፑል ዘማዓዱ ዘሎ ኣንዶኒ ኢራኦላ ሕርየኦም ከም ዝኾነ ፀብፃባት ኔሮም እዮም። ኦሊቨር ግላስነር እውን፣ ቐፃሊ ኣስልጣኒ ናይ ባየር ለቨርኩስ ናይ ምዃን ዕድሉ ዝለዓለ እዩ። ሕዚ ካብ ሊቨርፑል ሓልፈንቱ ዘተኣለየ ስሎት፣ ንባየር ለቨርኩሰን ከሰልጥኑ ካብ ዝሕረዩ ሓደ ምዃኑ ርግፅ እዩ። ዋላ እኳ፣ ለቨርኩሰን ኽንዲ ሚላን ዝኸውን ሚዛን እንተዘይሃለዎ፣ እዚ ሆላንዳዊ ኣሰልጣኒ፣ መሊሶም ናይ ምዕንባብ ተሰፋ ዘለዎም ተፃወት ዝሓዘ ጋንታ እዩ ክወርስ። ]
-
-17. Ajax: There was talk of Slot returning to his homeland weeks before Liverpool fired him. The 47-year-old has been linked with the Ajax job, having helped the Eredivisie wrestle control back from the Amsterdam giants at Feyenoord. 
-Slot got the Liverpool job off the back of an excellent stint with Ajax’s fiercest rivals, lifting the league title in 2022–23—Feyenoord’s second of the 21st-century. A move to the Johan Cruijff ArenA certainly wouldn’t go down well in Rotterdam, although several high-profile managers have jumped across the Klassieker divide. 2025–26 was tumultuous, to say the least, for Ajax, with three managers tasked with steadying the ship after Francesco Farioli moved on after their title collapse last season. They’ve sounded out Michel as their potential next head coach, but Slot’s availability may trigger a change of thought. [ስሎት ካብ ሊቨርፑል ቕድሚ ምብራሩ ኣብ ዝነበሩ ሰሙናት፣ ናብ ዓዱ ክምለስ እዩ ዝባሃል ወር ኔሩ። ኣብ ስፖርታዊ ዓመት 2022-2023 ኤረዲቪሲ ሊግ፣ ፈይኖርድ ንዓበይቲ ጋንታታት ኣምስተርዳም ጥሒሱ ዋንጫ ክዓትር ዘገበረ ስሎት፣ ምስ ቐፃሊ ኣስልጣኒነት ኣያክስ ሽሙ ተፃሚዱ እዩ። ስፖርታዊ ዓመት 2025–26 ንኣያክስ ዕግርግር ዝመልኦ ኢዩ ነይሩ። ዝሓለፈ ወቕቲ፣ ፍራንቸስኮ ፋሪዮሊ ዋንጫ ስለ ዘይሰለጦ ካብቲ ጋንታ ምፍላዩ ኣስዒቡ፣ ነታ ቀይቀይ ትብል ዘላ ጋንታ ኣያክስ ንምፅናዕ ሰለስተ ኣሰልጠንቲ ፈቲኖም ኣይተሳኸዐሎምን። ሚካኤል ቕፃሊ ኣስልጣኒኦም ክኾን ከም ዝደልዩ ሕረየኦም ገሊፆም ኔሮም፣ ሕዚ ስሎት ናፃ ምዃኑ ሓሳቦም ይቕይሩ ዶ ይኾን?]
-
-# Who will replace Arne Slot?
-18. Spanish coach Andoni Iraola, who left Bournemouth at the end of the season, is the clear frontrunner to take over with Liverpool keen to make a swift appointment.
-Andoni Iraola ticks a lot of boxes. His record during his three-year spell at Bournemouth was exceptional with him guiding them to 12th, ninth and sixth-placed Premier League finishes. He announced in April that he would be stepping down when his contract expired at the end of the season and he left Bournemouth with European football for the first time in their history. Iraola’s body of work is all the more impressive given the sale of players such as Milos Kerkez, Illia Zabarnyi, Dean Huijsen, Dango Ouattara and Antoine Semenyo during his tenure. Hughes knows him as well as anyone given that he appointed him at Bournemouth as Gary O’Neil’s successor in the summer of 2023. The 43-year-old Spaniard fits the bill in terms of the shift in style Liverpool are looking to implement. He’s available with no compensation required and is used to working as a head coach rather than manager. [ኣብ መወዳእታ ናይዚ ዓመተ ስፖርት ካብ ጋንታ ቦርንማውዝ ዝተሳናበተ ስፔናዊ ኣስልጣኒ  ኣንዶኒ ኢራኦላ፣ ሊቨርፑል ንምምራሕ ካብ ዝተሓፀዩ ኹላቶም ሕፁያት ፀብለልታ ዘለዎ እዩ። ኣንዶኒ ኢራኦላ ብዙሓት ረቛሒታት ዘማለአ እዩ። ምስ ጋንታ ቦርንማውዝ ንሰለስተ ዓመታት ኣብ ዝፀንሓሉ እዋን ዘመዝገቦ ክብረወሰን ፍሉይ እዩ። ጋንታ ቦርንማውዝ፣ ኣብ ፕረምየርሊግ፣ ንመበል 12፣ ታሽዓይን፣ ሻድሻይን ክስራዕ ጌሩዎ እዩ። ኣብ ታሪኾም ንፈለማ እዋን ኣብ ኣውሮጳ ሊግ ክኣትዎ ዝገበረ ኣንዶኒ ኢራኦላ፣ ኣብ መወዳእታ ናይዚ ዓመተ ስፖርት ኮንትራቱ ምስተወድአ ካብ ስልጣኑ ከምዝወርድ ኣብ ወርሒ ሚያዝያ ኣፍሊጡ እዩ። ናይ ኢራኦላ ስራሕ ኣዝዩ ዝደነቐሉ ምኽንያት ድማ፣ ኣብ እዋን ስልጣኑ ከም በዓል ሚሎስ ኬርከዝ፡ ኢልያ ዛባርኒ፡ ዲን ሁይሰን፡ ዳንጎ ኦዋታራን ኣንቶን ሰመንዮን ዝኣመሰሉ ተጻወትቲ ካብቲ ጋንታ በመሸጣ ዝወፁሉ እዋን ምዃኑ እዩ። ኣብ ሓጋይ 2023 ንጋሪ ኦኒል መተካእታ ክኾነ ኣሰልጣኒ ጋንታ ቦርንማውዝ ጌሩ ዝሾሞ ሂዩዝ ኣፀቢቑ ይፈልጦ እዩ። ሜላ ናይ እዚ ወዲ 43 ዓመት ስፔናዊ፣ ብመንፅር እቲ ሊቨርፑል ከትግብሮ ዝደሊ ዘሎ  ናይ ቕዲ ለወጢ ክራኣይ ኸሎ፣  ፍፁም ዝሳነ እዩ።]
-
-.
-
-
+# ዋንጫ ድሕሪ ምዕታሩ፣ Liverpool ንSlot ኣባሪሩዎ።
+## Why Liverpool sacked Arne Slot? -6
+## Arne Slot writes emotional open letter after sacking - 11
+## Four potential destinations for Arne Slot After Liverpool -14
+## Who will replace Arne Slot? - 18
+    1.
+        1. ን Arne Slot፣ ናይ ምብራሩ መርድእ ዝበፅሖ፣ በቲ ናይ Liverpool ዳይረክተር ስፖርት ዝኾነ Richard Hughes ቐዳም ንጎሆ ኔሩ።
+        2. ንኽልተ ዓመት ተቐሚጥሉ ካብ ዝነበረ ናይ ኣስልጣኒነት መንበር ንኽእለይ፣ ብሕዘን ከም ዝተወሰነ እዩ ነዚ ሆላንዳዊ ዝተነገሮ።
+        3. ምስቶም ቀያሕቲ ኣብ ዝገበሮ ናይ መጀመርታ ወፍሪ ንዝዓተሮ ናይ Premier League ዋንጫ ምዕቃብ ዘይኻኣለ Slot፣ ድሕሪ ፃንሒት ኽልተ ወቕቲታት ጥራይ፣ ምስ Liverpool ዝነበሮ ርክብ ከም ዝተበተኸ ጋህዲ ኾነ።
+    2.
+        1.  እቲ ወቕቲ እናተጠቕለለ እንትኸይድ፣ እቲ ኣብ ሓደ እዋን ዓብላሊ ዝነበረ ጋንታ ዓይኑ እንዳራኣየ እንትበታተን፣ ወዲ 47 ዓመት ዝኾነ Slot፣ ዝተሓተ ሓምሻይ ደረጃ ጥራይ ብምውፃእ እዩ ናይ Anfield ካልኣይ ዓመቱ ዛዚሙ።
+        2.  ዋላ እኳ ንመፃረዪ Champions League እንተበቕዐ፣ ካብ ዝነበሮ ዓሰርተ ዓመት እቲ ዝወሓደ፣ 60 ነጥቢ ጥራይ ብምምዝጋብ እዮ፣ ጋንታ Liverpool ነቲ መስመር ብሰንከልከል ዝሰገሮ።
+    3.
+        1. ንሊግ ብ10 ነጥቢ ፍልልይ ብምዕዋታ፣ ኣብ ናይ 2024-2025 ንዘሎ ዋንጫ ፕረምየርሊግ ብምዕታር፣ Slot ንሕድሪ Jürgen Klopp ኣብ Anfield ቀፂሉዎ እዩ።
+        2. ኾይኑ ግን፣ ኣብ መበል ካልኣይ ዓመት እዚ ሆላንዳዊ ኣስልጣኒ፣ ነገራት በብቑሩብ ክፈርሱ ጀመሩ።
+        3. ብሓምሻይ ደረጃ ነዚ ወቕቲ ምዝዛም፣ ኣዝዩ ትሑት ዝኾነ ፃዕሪ ዘርኣየሉ ናይ ዋንጫ ተሳትፎ፣ ከም ስጡሕ ፃሓይ ዝወቕዖ ምስ መሓመድ ሳላሕ ዝገበሮ ባእሲ፣ ዕፃ ፋንታ ናይ እዚ ሰብኣይ ደምደሞ።
+    4.
+        1. ዋላ እኳ ሓደ ዓመት ዋንጫ ድሕሪ ምዕታሩ፣ ንሓደ ኣሰልጣኒ ካብ ስልጣኑ ምብራር ጭካነ እንተመሰለ፣ ዘይንቡር ግን ኣይኾነን።
+        2. ኣብ ዝሓለፉ ኽልተ ዓሰርተ ዓመታት፣ ኣብ ኣውሮጳ ካብ ዘለዎ ሓሙሽተ ሊጋት እቶም መብዛሕተኦም ዓበይቲ ጋንታታት፣ ዋንጫ ድሕሪ ምዕታር ኣብ መበል ሓደ ዓመት ወይ ትሕቲኡ፣ ንኣስልጠንቶም ኣባሪሮሙዎም እዮም።
+    5.
+        1. እዚ፣ ን Slot፣ ዘይተፀበዮ ነገር እዩ ኾይኑዎ።
+        2. "ንዝመፅእ ዓመት፣ ኣሰልጣኒ Liverpool ኾይነ ከም ዝቕፅል ዝኣምነሉ ኩሉ ዓይነት ምኽንያት ኣለኒ።" ክብል፣ ቅድሚ መወዳእታ ፀወታ ናይዚ ዓመተ-ስፖርት፣ ኣብ Villa Park ንጋዜጠኛታት ተዛሪቡ ኔሩ።
+        3. ብድሕሪ መጋረጃ፣ ኣብ መደባት ምልመላ ቅድመ ወቕትን ሓጋይን ኣብ ዝነበሩ ምይይጣት ምሉእ ብምሉእ ክሳተፍ ፀኒሑ እዩ።
+        4. Slot፣ ኣብዚ ክራማት ምስ ምምሕዳራዊ ሓገዝቱ ንኽፅንበር ኣብ Feyenoord ተሓጋጋዚኡ ንዝነበረ Etienne Reijnen ኣሰሊፉ ነይሩ።
+        5. ኣብ መጀመርታ ቅድሚ ክልተ ዓመት ካብ Jürgen Klopp ስልጣን ክሕዝ ከሎ፣ ን Reijnen ሒዙ ክመጽእ ደልዩ እኳ እንተነበረ፣ ናይ ስራሕ ፍቓድ ክረክብ ግን ኣይከኣለን ኔሩ።
+        6. እዚ ፀገም ሕዚ ስለ ዝተፈትሐ፣ Reijnen ኣብዚ ቀረባ እዋን ካብታ ሆላንዳዊት ክለብ ተሳናቢቱ፣ ምስ Slot ኣብ Anfield ዳግማይ ንክራኸብ ትፅቢት ነይርዎ።
+        7. ይኹን እምበር፡ ዝኾነ ውዕል ኣይተፈረመን።
+        8. Slot፣ ነቲ ክሳብ ክንድዚ ዝተጋገዮ ንምእራም ዕድል ክረክብ እዩ ብዝብል እምነት፣ ብዛዕባ መደባቶምን ንዝመፅእ ዓመተ-ስፖርት ናይ ሓጋይ ምድላዋትን ንተፃወትቲ ምዝርራቡ ቀፂሉ ነይሩ።
+        9. ሰንበት ንግሆ፡ እቶም ተስፋታት፣ ፅሓይ ከም ዝወቕዖ ዛዕዛዕታ፣ ክተኑ ረኣዮም።
+    6.
+        1. ዋላ ድሕሪ ካብ መወዳእታ መስከረም እስካ መወዳእታ ሕዳር ዝዘለቐን ካብ 12 ግጥም ብ 9 ስዕረት ዝተዛዘመን ዘይስልጡ ውድድር፣ ቅዋም መሪሕነት እቲ ጋንታ ንፁርን ነቕ ዘይብልን እዩ ኔሩ።
+        2. "Slot፣ ሙሉእ ድጋፍ እቲ መሪሕነት ኣለዎ" ዝብል።
+        3. ድሕሪ ኣብ FA ዋንጫ ብ Manchester City ን ኣብ ኣውሮጳ ብ Paris Saint-Germainን ዝተገበሩሉ ኽሳድካ ዘድንኑ ስዕረታት፣ ናይ Champions League መፃርዪ ብምሕላፍ ጥራሕ ክፅናዕናዕ ዝተፈረደሉ መሪሕነት Liverpool፣ ዋላ ኣብ ወርሒ ጉንበት፣ ን Slot ምድጋፉ ኣየቋረፀን ኔሩ።
+        4. Slot ንዝገብሮ ዝነበረ ፃዕሪ ሓዘኔታ ኔሩዎ።
+        5. ናይ እዚ ወቕቲ ድሕረ ባይታ፣ ኣብ መወዳእታ ሓምለ ኣብ ስፔን ብሰንኪ ሓደጋ መኪና፣ ሕልፈተ ህይወት Diogo Jota ን ሓው Andre Silva ን ስዒቡ ብዝነበረ ሓዘን ዝታዓጀበ እዩ ኔሩ።
+        6. ላዕለዎት ሰብ መዚ FSG፣ Slot ኣብቲ ኣዝዩ ከቢድ ኩነታት ንዘርኣዮ ናይ ኣመራርሓ ብቕዓት፣ ዓብዪ ኣድናቖት ነይርዎም።
+    7.
+        1. ዋላ እኳ Hughes ን Michael Edwards ን ንSlot ዘሎውም ድጋፍ ቕድም እሎም እንተገለፁ፣ ድሕሪ ምዝዛም ዓመተ-ስፖርት ኣብ ዝነበረ ሰሙን ግን፣ ነግራት መዚኖም፣ ኣብ ውሽጢ ኽዳን መቕየሪን ናይ ደገፍቲ ዘሎ ስምዒትን ኣብ ግምት ብምእታው፣ ለውጢ ኣገዳሲ ምዃኑ ኣመኑ።
+    8.
+       1. ብምኽንያት፣ ከም በዓል ሳላሕ፣ Alexis Mac Allister፣ Ibrahima Konate ን Cody Gakpoን ዝኣመሰሉ ምሩሩፃት ኮኾባት ዝነበረ ቁጠባዊ ምንቁልቋል፣ ን Slot፣ ስራሕ ዝያዳ ተሪርዎ ነይሩ።
+       2. ኣብ መንጎ ሳላሕን Slot ን ዝነበረ ዘይምቅዳው፣ ሓደ ካብቶም ንኡሳን ዛንታታት ናይዚ ዓመተ-ስፖርት እዩ ነይሩ።
+       3. እዚ ግብጻዊ ኣጥቃዒ፣ ኣብ ወርሒ ሕዳር ንግዚኡ ካብቲ ጋንታ ምስ ተቐነስ፣ ንናይ እቲ ጋንታ ሓፈሻዊ ድኽምት መመኽኔታ ተጌረ እየ ኢሉ ንጋዜጠኛታት ከም ዘንፀርፀረ ዝዝከር እዩ።
+       4. ናይ ተፃወቲ መጉዳእቲታት ምብዝሕ እውን፣ ነቲ ኹነት ኣጋደዶ።
+       5. ናይ ምፍራም ክብረወሰን ዝሰበረ ኣሌክሳንደር ኢሳቕ፣ ድሕሪ ነዊሕ እዋን ዝወሰደ ናይ 125 ሚልዮን ፓውንድ ካብ Newcastle United ዝውውር፣ ብቕዓት ከይሓዘ እዩ ናብ ሊቭርፑል መፂኡ።
+       6. ሽዑ ንሽዑ ድማ፣ ብሰንኪ ስብራት ፀጋማይ እግሩ፣ ንኣስታት ኣርባዕተ ኣዋርሕ ካብ ጸወታ ኣብኵሩ እዩ።
+       7. Giovanni Leoni ን Conor Bradley ን፣ ክልቲኦም፣ ወቕቲ ሙሉእ ካብ ፅዋታ ክእለዩ ዝገብሮም ናይ ብርኪ ማህሰይቲ ኣጋጠሞም።
+       8. 17 ጎላት ዘመዝገበ ብሉጽ ኣመዝጋቢ ሸቶ Hugo Ekitike ድማ፣ ናይ የማናይ ኣኪለስ ጅማቱ ተበቲኸ።
+       9. Alisson፣ Jeremie Frimpong ን Wataru Endo ን እውን ሓያሎ ግዜ ኣብ Bench ኣሕሊፎም እዮም።
+       10. ካብቶም 450 ሚልዮን ፓውንድ ወፍሪ ዝተገበረሎም ተፃወትቲ፣ መብዛሕቲኦም ኣብ ሜዳ ከምዘይተሳተፉ፣ ርድኢት ዝተበፅሓሉ ሓቂ እዩ።
+       11. ምስ ኩዕሶ እግሪ እንግሊዝ ንምስናይ ንነዊሕ እዋን ዘድልዮ ዝነበረ Florian Wirtz፣ ኢሳቕን Ekitike ን፣ ብሓባር፣ 118 ደቓይቕ ጥራይ እዮም ኩዕሶ እግሪ ተጻዊቶም።
+    9.
+        1.  Slot ካብ ስርሑ ዝተባረረ፣ ምስ ሳላሕ ብዝተፈጠረ ምትፍናን ጥራሕ ኣይነበረን።
+        2.  እኳ ዳኣስ፣ ኣብቲ ናይ መወዳእታ ውሳነ ኣዝዩ ኽብደት ዝነበሮ፡ ነቲ ኣብ ጋንታ Liverpool ንዝነበረ ርኡይ ድኽመት፣ ፍታሕ ክረክብ ዘይምኽኣሉ እዩ።
+        3.  ብተወሳኺ፣ ኣብቲ ሩሕ ዘይነብሮን ፋሕ ብትን ዘበለን ፅዋታ፣ ኣሉታዊ ደባብ ኣንፀላለወ።
+        4.  ደገፍቲ እቲ ጋንታ፣ ብናይ Slot ዝንጉዕ ኣገባብ ኩዕሶ እግሪ ከም ዝተሳላቸዉ ገለፁ።
+        5.  ኣብ መወዳእታ ወርሒ ሚያዝያ፣ Liverpool ኣብ ልዕሊ  Everton ን Crystal Palace ን ብዝገበሮ ተኸታታሊ ዓወት፣ ን Manchester United ተናጢሩ ሳልሳይ ደረጃ ክሕዝ እዩ ዝብል ባህጊ ኔሩ።
+        6.  ኣብ ውሽጢ ብሉፃት ሓሙሽተ ንምውዳእ፣ ካብ ዝተረፉ 4 ግጥማት 4 ነጥቢ ጥራይ እዩ ዘድልዮ ነይሩ።
+        7.  ካብተን ዝሓለፋ 12 ነጥቢ ግን፣ ክልተ ነጥቢ ጥራይ እዮ ክወስድ ኽኢሉ።
+        8.  ኣብ Old Trafford ዘጋጠማ መሕፈሪ ስዕረት ስዒቡ፣ ኣብ ሜድኦም ምስ Chelsea ብመዓረ ውፅኢት ተፈላለዩ።
+        9.  ሽዑ፣ ኣብ 2010-11 ንዝነበረ ናይ መወዳእታ መዓልታት ስልጣን Roy Hodgson ኣብ Anfield ዝገጠሞ ዓይነት ተቓውሞ ን Slot ገጠሞ።
+        10. ን Rio Ngumoha ንምትካእ ዝወሰዶ ውሳነ፣ ካብ ደገፍቲ Liverpool፣ ሓያል ናይ ተቓውሞ ጭዳረ ኣጋጠሞ።
+        11. ናይ መወዳእታ ፊሽካ ምስ ተነፍሐ ድማ፣ ተውሳኺ ተቓውሞ ጭዳረ ካብ ደገፉቱ ኣስዓበ።
+        12. ሓድ ንባዶ እንዳመርሑ ኸለው፣ Slot ዝያዳ ኽንዲ ምጥቃዕ ኣብ ምክልኻልን ነቲ ፅዋታ ኣብ ምዝሕሓል ከም ዝተፀመደ ዝተዓዘቡ ደገፍቲ፣ ብሕራሮት መሬት ዕንፅራር እንትገብሩዎ፣ Hughes ኣብ ሳንዱቕ ዳይረክተራት ኮፍ ኢሉ ይዕዘብ ነበረ።
+        13. ኣብ መንጎ ትፅቢት ደገፍቲን እቲ ጋህዳዊ ሓቂን ዝነበረ ሓጓፍ ኣዝዩ ሰፊሕ እዩ ኔሩ።
+        14. ኣብ Aston Villa 4 ብ 2 ዝተሳዕረትሉ ፅወታ እውን ማዕረ መሕረሪ እዩ ኔሩ።
+        15. ኣብ መወዳእታ መዓልቲ ምስ Brentford 1 ብ 1 መዓረ ዝወፁሉ ግጥም ተኾነ እውን ብዙሕ ዝሓሸ ኣይነበረን።
+        16. ፍልፍላት ከም ዝሓበሩዎ፣ ናይ Slot ካብ Liverpool ምብራር፣ ብሰንኪ ሓደ ዓይብዪ ህሞት ዘይኮነስ፣ ኣብተን መዕፀዊ ሰሙናት ኣብ Slot ዝነበረ እምነት ቀስ ብቐስ ስለ ዝጎደለ እዩ።
+    10.
+        1.  ኣንፃር Brentford ኣብ ዝተኻየደ ናይ መወዳእታ ፀወታ ናይ እዚ ዓመተ-ስፖርት ስዒቡ ኣብ ዝተገበረ እቲ ንቡርን ባህልዋኢን ምርኢት ምድናቕ Slot ዘይምስታፉ፣ ንብዙሓት ሰባት ኣደንፅዮውም እዩ።
+        2.  ከም መሓመድ ሳላሕን Andy Robertson ን ዝኣምሰሉ ተሳናበትቲ ሰብ ቅያታት ኣብ Anfield ናእዳ እንትቕበሉ፣ Slot ግን ኣብቲ ናይ ጋንታ በዓቲ ንበይኑ ኾፍ ኢሉ ኔሩ።
+        3.  ምስዚ ሆላንዳዊ ቅርበት ዘለዎም ሰባት፣ ምስ ሳላሕን Robertsonን ትኹረት ንከይቃፀፅ ኢሉ እምበር፣ ምስ እቲ ጋንታ ዘለዎ ፃንሒት ምዝዛሙ ዘማላኽት ኣይኾነነ ይብሉ ኔሮም።
+    11.
+        1.  Slot ኣብ Liverpool Echo ኣብ ዝዘርግሖ ስምዒታዊ ቕሉዕ ደብዳበ፣ ካብ ፈለማ ኣትሒዙ፣ ደገፍቲ Liverpool መርሓባ ከም ዝበሎዎን ኣብ ጉዕዝኡ ከም ዝደገፉዎን ሓቢሩ።
+        2.  "ኣነ፣ ነዚ ዝሕብሕቦ ነገር እዩ" ክብል ወሲኹ ገለፀ።
+        3.  "ኣብ መፃኢ ግዜ፣ ሙሉ እምነት ኣሕዲረ አየ ካብዚ ጋንታ ዝፍለይ።"
+        4.  "እቶም ነዚ ጋንታ ብዙሕ ዘወፈዩ፣ ክብርታቱ ዝዓቀቡን ብዙሓት ዘይርስዑ ህሞታት ዝፈጠሩ ተፃወትቲ፣ ነባሪ ዝኾነ ሰረት ሃኒፆም እዮም።" ክብል ድማ ወሰኸ።
+        5.  ዋላ እኳ ካብ ኩሉ ውድድራት 20 ስዕረት እንተኣትኣናገደ፣ Slot ግን ኣብ ዝመፅእ ዓመት ኣብ ዝካየድ ናይ Champions League ንናይ Liverpool ቦታ ኣውሒሱ እዩ።
+        6.  "ኩዕሶ እግሪ Champions League ምውሓስ ኣገዳሲን፣ Liverpool ኣብ ዝመፅእ ዓመተ-ስፖርትን ኪኖኡን ብዝለዓለ ደረጃ ክትቅፅል ከምእትኽእል ዘረጋግፅ ሓላፍነት እዩ ነይሩ" ክብል ገለፀ።
+        7.  "ለውጢ ኣካል ኩዕሶ እግሪ እዩ፡ እንተኾነ ግን እዛ ክለብ ንህዝባ ክትሐበን ምዃና እፈልጥ እየ።"
+        8.  "ኣብ ትሕቲ እቲ ምልክት ጉሕጓሕ Anfield ንመጀመርታ ግዜ ደው ክብል ከለኹ፣ እዛ ክለብ እንታይ ከም እትጠልብ ፈሊጠ ነይረ።"
+        9.  "ነቲ ጠለብ ንምግሃድ፣ ንፃት እውን ፃዕርና ከም ዘየቋረፅና እንዳፈለጥኩ እየ ካብዚ ጋንታ ዝሳናበት ዘለኹ።"
+        10. "ነቲ ፃዕሪ ምሳና ክተስተማቕሩዎ ብምኽኣልኩም ድማ፣ ዝያዳ ትርጉም ክህልዎ ኽኢሉ እዩ" ክብል Slot ገሊፁ።
+        11. "ኣብታ ዋንጫ ዘልዓልናላ መዓልቲ፣ ደርፍታትና እናደረፍናን ብዘእተኖዮም ጎላት እናተሓጎስናን ኸለና፡ ካብ ስታድዩም ወፃኢ ኣብ ጎደናታት ተሰሪዕኩም፡ ን Anfield ብትፅቢት እናማዓደኹም ምሳና ኣብኡ ነይርኩም።"
+        12. "ኣብ 2020 ብዙሕ ዝተመንጠልኩም፣ ኣካል ናይዚ ኩሉ ምዃንኩም ክሳብ ክንደይ ኣገዳሲ ምዃኑ ዘንጊዐዮ ኣይፈልጥን።"
+        13. "ኣብ ጎደናታት Liverpool ብኣማኢት ኣሽሓት ተኣኪብኩም ንፅምብል ዋንጫ ክትመፅ ምርኣይ፣ ነቲ ሓሳብ ዘራጉድ ጥራይ እዩ።"
+        14. "ናይ Liverpool መበል 20 ዋንጫ ሊግ ናይ ኩላትና እዩ።"
+        15. "እዚ፣ ኣብ ታሪኽ Liverpool ኣገዳሲ ምዕራፍ ኮይኑ ክቕፅል እዩ።"
+        16. "በዚ ድማ ኩላትና ክንሕበን ይግባእ።"
+        17. "እዛ ጋንታ፣ በቲ ዝዓበየ ክብሪ ኩሉ ግዜ ንነብሳ ክትምዝኖ እያ።"
+        18. "ከምኡ እዩ እውን ክኸውን ዘለዎ።" በለ Slot።
+    12.
+        1.  ዝሓለፈ ክራማት፡ ተፃወትቲ ንልምምድ ቅድመ ዓመተ-ስፖርት ክምለሱ ኣብ ዝዳለዉሉ ዝነበሩ እዋን፡ ምስ ሓዉ Andre Silva ብሓደጋ መኪና ንዝሞት ነፍስሄር ኣጥቃዓይ Liverpool Diogo Jota፣ Slot ኣብ ደብዳቤኡ ክብሪ ሂቡ እዩ።
+        2.  እዚ ሆላንዳዊ፡ ሞት Jota፣ "ክግለጽ ዘይካኣል" ምዃኑ እንተገለፀ እኳ፡ "ስድራቤት Liverpool ዘርኣይዎ ፍቕርን ርህራሄን ደገፍን ፍሉይ እዩ" ኢሉ።
+        3.  "ካብዛ ክለብ ክወፅእ ከለኹ፡ እቲ ን Diogo ዘኽበርኩሙሉን ኣብ ዝኽሩ ብሓባር ደው ዝበልኩሙሉ ኣገባብ ንዘልኣለም ምሳይ ከም ዝፀንሕ ምግላፀ እንተረሲዐ፣ ሞት ይረሳዓኒ" ክብል Slot ገሊፁ።
+        4.  "እቲ ዘለና ርክብ፣ ኪኖ ኩዕሶ እግሪ፣ ኪኖ ኣብ ትሕቲ መብራህቲ Anfield  ዘሕለፍናዮም ኤውሮጳዊ ምሸታት ወይ ድማ ኪኖ ኣብ ኮረብታ ስታድዮምና ዝደረፍናዮ "You'll Never Walk Alone" ደርፍና እዩ።"
+    13.
+        1.  ብተወሳኺ፣ ኣብ ግንቦት 2025 ኣብ ዝተኻየደ ናይ ዋንጫ ሰልፊ እታ ክለብ፣ "ናይ ሕልዮትን ሓድነትን መንፈስኩም ብቐጥታ ናይ ምርኣይ ፍሉይ ዕድል ዝረኸብኩሉ እዩ" ክብል Slot ገሊፁ።
+        2.  "ነዛ ከተማ ቕድሚ ሕዚ ካብ ከቢድ ህሞታት ዝስተር መንፈስ እዩ።"
+        3.  "እዙይ መንፈስ ድማ፣ ንብዙ ዓመታት ጎስጓስ ንዝገበሩ፣ ፍትሕን ተሓታትነትን ዘምፅእ እዩ ዝብል ተሰፋ ኣለኒ።" ክብል Slot ቅሉዕ ደብዳቤኡ ዛዚሙ።
+    14.
+        1.  ዝኾነ ኾይኑ፣ እዚ ወዲ 47 ዓመት ሰብኣይ፣ ኣብቐፃሊ ናይ ስራሕ ጉዕዙኡ ዕንቅፋት ዘጋጥሞ ኣይምስልን።
+        2.  ምኽንያቱ፣ Slot፣ ሕዚ እውን ተጠላቢ ኣሰልጣኒ እዩ።
+        3.  እሱ ዕረፍቲ ከይወሰደ ናብ ስራሕ ክኣቱ ሕርያ ተልይዎ፣ ኣብዚ ሓጋይ ዝማናጠላሉ ብዙሓት ጋንታታት ኣለዋ።
+    15.
+        1.  ድሕሪ ንዋንጫ ዝተገበረ ዘይስሉጥ ምልልሓፅ፣ AC Milan፣ ኣብ 2025-2026 ኣብ ዝነበረ ስፖርታዊ ወቕቲ፣ ጭራ መስርዕ ተሰሊፉ ንኽወፅእ እዩ ይኾይኑ።
+        2.  ናይ Massimiliano Allegri ዝኣረገ ስፖርታዊ ኣካይዳ፣ ንሞራል ደገፍቲ Rossoneri ኣኸርፊሑዎ እዩ።
+        3.  Milan ከም ብሓዱሽ ሀ ኢሎም ንኽጅምሩ፣ ኹነት ኣገዲዱዎም እዩ።
+        4.  ኣብ መፋርቕ ወፍሪ ዝነበሮም ሓይሊ ኣብ ግምት እንትነእቱ፣ ኣብ Champions League ዘይምስታፎም፣ Allegri ምስ Milan ዝቕፅልሉ  መንገዲ ዘይሕሰብ ክኾን እዩ ጌሩዎ።
+        5.  ስለዚ ድማ፣ Allegri ክስጎጉ ከብ ዝተፈረደሎም ላዕለዎት መሪሕነት ጋንታ Milan እቲ ሓደ ንኾን ጌሩዎ እዩ።
+        6.  Slot ካብ Liverpool ምብራሩ ምስ ተፈልጠ፣ ነቲ ኣብ Milan ዘሎ ኽፉት ናይ ስራሕ ቦት ክሽፍኑ ካብ ዝተሓፀዩ እቲ ሓደ ኾይኑ።
+        7.  እስካብ ሕዚ፣ ኣብ ቅድሚት ዝስራዕ ሕፁይ መተካእታ Allegri የለን።
+        8.  ኾይኑ ግን፣ ናይ Premier League ዋንጫ ዝሰዓረ ኣሰልጣኒ፣ ኹሉ ሻዕ ተሃራፊ እዩ።
+        9.  ሕዚ Milan፣ ናብ 21 ክፍለ ዘመን ዘሳግሮ ኣሰልጣኒ እዩ ዝጠልብ።
+        10. ዋላ እኳ ናይ Slot ስፖርታዊ ቅጥዒ፣ ሩሕ ዘይብሉ፣ ከም ማሽን ዝዓይነቱ ደረቕ ነገር እንተኾነ፣ እንተወሓደ፣ ዝሓዝካያ ኩዑሶ ከመይ ከም ክትጥቀመላ፣ ኣፀቢቑ ዝፈልጥ ሜላ ኣለዎ።
+        11. ናይ Milan ልዑል ክብሪ ኣብ ግምት እንትነእቱ፣ እዙይ ን Slot ዝለዓለ ናይ ስራሕ ዕድል እዩ።
+        12. ምናልባት እውን፣ ሸለል ኢልካ ክትሓልፍ ዘይትኽእል ፍሉይ ዕድል።
+    16.
+        1.  ኣብዚ ሓጋይ፣ ሀ ኢሉ ክጅምር ዝወሰነ ኻልእ ጋንታ፣ Bayer Leverkusen እዩ።
+        2.  ቕድሚ ሓደ ዓመት ን Erik ten Hag ብምቑፃር ኣዕናዊ ጌጋ ከም ዝፈፀመ ቐልጢፉ ዝተረደአ እዚ ጋንታ፣ ናይ እዚ ዓመተ-ስፖርት ወቕቲ ክዛዘም ኽልተ ሰሙን ምስ ተረፎ፣ ብዴንማርካዊ ኣስልጣኒ Kasper Hjulmand ተኪኡዎ እዩ።
+        3.  ዘላቒ ኣሰልጣኒ ዘይኾነስ ግዝያዊ ፍታሕ ንሙዃን ዝተቐፀረ Hjulmand፣ ንናይ 2023-2024 Bundesliga ተዓዋቲ ጋንታ Leverkusen፣ ኣብ Champions League መብል 16፣ ኣብ ውሽጢ ሃገር ድማ መበል 6 ኣስሪዑ ብምዝዛም፣ ዝተውሃቦ ሓላፍኒት ብግቡእ ተወፂኡ እዩ።
+        4.  በዚ ምኽንያት ድማ፣ Leverkusen፣ ንቐፃሊ ዓመተ-ስፖርት ኣብ ኣውሮጵ ሊግ ናይ ምስታፍ ውሕስንኡ ዝተረጋገፀ እዩ።
+        5.  ሕዚ Leverkusen፣ ዘመነ Xabi Alonso ዝምልሰሉ ኣስልጣኒ እዮ ዝእልሹ ዘሎ።
+        6.  እሞ Slot፣ ኻልኣይ Alonso ይኾን ዶ ኾን?
+        7.  ናብ Liverpool ዘማዓዱ ዘሎ Andoni Iraola ሕርያ Leverkusen፣ ከም ዝኾነ ፀብፃባት ኔሮም እዮም።
+        8.  Oliver Glasner እውን፣ ቐፃሊ ኣስልጣኒ ናይ Bayer Leverkusen ናይ ምዃን ዕድሉ ዝለዓለ እዩ።
+        9.  ሕዚ ካብ Liverpool ሓላፊንቱ ዘተኣለየ Slot፣ ን Bayer Leverkusen ከሰልጥኑ ካብ ዝሕረዩ ሓደ ምዃኑ ርግፅ እዩ።
+        10. ዋላ እኳ፣ Leverkusen ኽንዲ Milan ዝኸውን ሚዛን እንተዘይሃለዎ፣ እዚ ሆላንዳዊ ኣሰልጣኒ፣ መሊሶም ናይ ምዕንባብ ተሰፋ ዘለዎም ተፃወትቲ ንዝሓዘ ጋንታ እዩ ክወርስ።
+    17.
+        1. Slot ካብ Liverpool ቕድሚ ምብራሩ ኣብ ዝነበሩ ሰሙናት፣ ናብ ዓዱ ክምለስ እዩ ዝባሃል ወር ኔሩ።
+        2. ኣብ ዓመተ-ስፖርት 2022-2023 Eredivisie League፣ ጋንታ Feyenoord ንዓበይቲ ጋንታታት Amsterdam ጥሒሱ ዋንጫ ክዓትር ዘገበረ Slot፣ ምስ ቐፃሊ ኣስልጣኒነት Ajax ሽሙ ተፃሚዱ እዩ።
+        3. ዓመተ-ስፖርት 2025–26 ን Ajax ዕግርግር ዝመልኦ ኢዩ ነይሩ።
+        4. ዝሓለፈ ወቕቲ፣ Francesco Farioli ዋንጫ ስለ ዘይሰለጦ ካብቲ ጋንታ ምፍላዩ ኣስዒቡ፣ ነቲ ቀይቀይ ዝብል ዘሎ ጋንታ Ajax ንምድልዳል ሰለስተ ኣሰልጠንቲ ፈቲኖም፣ ኣይተሳኸዐሎምን።
+        5. ቕፃሊ ኣስልጣኒኦም Michel ክኾን ከም ዝደልዩ Ajax ሕረየኦም ገሊፆም ኔሮም፣ ሕዚ Slot ናፃ ብምዃኑ ሓሳቦም ይቕይሩ ዶ ይኾን?
+    18.
+        1.  ኣብ መወዳእታ ናይዚ ዓመተ-ስፖርት ካብ ጋንታ Bournemouth ዝተሳናበተ ስፔናዊ ኣስልጣኒ Andoni Iraola፣ Liverpool ንምምራሕ ካብ ዝተሓፀዩ ኹላቶም ሕፁያት ፀብለልታ ዘለዎ እዩ።
+        2.  Andoni Iraola ብዙሓት ናይ Liverpool ረቛሒታት ዘማለአ ኣስልጣኒ እዩ።
+        3.  ምስ ጋንታ Bournemouth ንሰለስተ ዓመታት ኣብ ዝፀንሓሉ እዋን ዘመዝገቦ ክብረወሰን ፍሉይ እዩ።
+        4.  ንጋንታ Bournemouth፣ ኣብ Premier League፣ ንመበል 12፣ ታሽዓይን፣ ሻድሻይን ክስራዕ ጌሩዎ እዩ።
+        5.  ኣብ ታሪኾም ንፈለማ እዋን ኣብ ኣውሮጳ ሊግ ክኣትዎ ዝገበረ Andoni Iraola፣ ኣብ መወዳእታ ናይዚ ዓመተ-ስፖርት ኮንትራቱ ምስተወድአ፣ ካብ ስልጣኑ ከምዝወርድ ኣብ ወርሒ ሚያዝያ ኣፍሊጡ እዩ።
+        6.  ናይ Iraola ስራሕ ኣዝዩ ዝደነቐሉ ምኽንያት ድማ፣ ኣብ እዋን ስልጣኑ ከም በዓል Milos Kerkez፡ Illia Zabarnyi፡ Dean Huijsen፡ Dango Ouattara ን Antoine Semenyoን ዝኣመሰሉ ተጻወትቲ ካብቲ ጋንታ በመሸጣ ዝወፁሉ እዋን ምዃኑ እዩ።
+        7.  ኣብ ሓጋይ 2023፣ ን Gary O’Neil መተካእታ ክኾነ ኣሰልጣኒ ጋንታ Bournemouth ጌሩ ዝሾሞ Hughes፣ ን Iraola፣ ኣፀቢቑ ይፈልጦ እዩ።
+        8.  ሜላ ናይ እዚ ወዲ 43 ዓመት ስፔናዊ፣ ብመንፅር እቲ Liverpool ከትግብሮ ዝደሊ ዘሎ ናይ ቕዲ ለወጢ ክራኣይ ኸሎ፣ ፍፁም ዝሳነ እዩ።
